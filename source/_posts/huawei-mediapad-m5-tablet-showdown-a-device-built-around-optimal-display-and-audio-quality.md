@@ -1,7 +1,7 @@
 ---
 title: "Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
-date: 2025-01-17T18:03:13.953Z
-updated: 2025-01-22T16:36:56.302Z
+date: 2025-01-25T01:40:07.217Z
+updated: 2025-01-29T19:50:51.606Z
 categories:
   - BestProducts
 description: "This Article Describes Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/bJGZVvLPIuXJptw8uPYtObxbpMQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -44,13 +48,13 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 3.6
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -106,6 +110,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
@@ -113,10 +121,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  Starting off with some of this unit’s strengths, this particular series uses an IPS panel for the screen, which means you’re going to get vibrant colors, a nice backlight for viewing in bright rooms, and excellent viewing angles. This all adds up to a superb experience if you’ve got a big living room that’s brightly lit by windows, where viewers might not be able to sit completely centered.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -132,6 +136,10 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Audio Quality: Loud, but distorted**
@@ -139,10 +147,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: A bit sluggish but good enough**
 
@@ -159,7 +163,7 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Not bad for the size, but not the cheapest**
@@ -171,7 +175,7 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
@@ -191,10 +195,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 **A solid IPS panel 4K TV.**
 
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -225,24 +225,24 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-best-budget-friendly-srt-translators-unveiled-online-for-2024/"><u>[Updated] Best Budget-Friendly SRT Translators Unveiled Online for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-tiktoks-take-jujutsu-kaisen-challenges-and-laughs/"><u>[Updated] In 2024, TikTok's Take Jujutsu Kaisen Challenges and Laughs</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-twirl-chill-and-groove-the-ultimate-country-playlist-on-tiktok/"><u>[Updated] In 2024, Twirl, Chill, and Groove The Ultimate Country Playlist on TikTok</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-realme-c55-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Realme C55 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/critique-of-motorola-edgeplus-not-fully-meeting-elite-smartphone-criteria/"><u>Critique of Motorola Edge+: Not Fully Meeting Elite Smartphone Criteria</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/eufy-t8200-review-a-no-subscription-video-doorbell/"><u>Eufy T8200 Review: A “No-Subscription” Video Doorbell</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/from-pages-to-production-creating-a-movie-blueprint-for-2024/"><u>From Pages to Production Creating a Movie Blueprint for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Motorola Moto G34 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-bloodbornes-gothic-universe/"><u>In-Depth Analysis of Bloodborne's Gothic Universe</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-nvidia-shield-tv-pro-top-pick-for-game-lovers-and-cinephiles-alike/"><u>In-Depth Analysis of Nvidia Shield TV Pro – Top Pick for Game Lovers and Cinephiles Alike</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/jackery-battery-pack-assessment-the-added-benefits-of-an-included-ac-connection-point/"><u>Jackery Battery Pack Assessment: The Added Benefits of an Included AC Connection Point</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/mastering-live-tv-access-a-top-ranked-list-review/"><u>Mastering Live TV Access A Top-Ranked List Review</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/punpals-create-hilarious-memes-now/"><u>PunPals - Create Hilarious Memes Now</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stay-active-anywhere-using-the-miniature-marvel-that-is-samsung-galaxy-fit2/"><u>Stay Active Anywhere Using the Miniature Marvel That Is Samsung Galaxy Fit2</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-comprehensive-review-of-the-linksys-ac1900-top-choice-in-home-and-office-routers/"><u>The Comprehensive Review of the Linksys AC1900 – Top Choice in Home and Office Routers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-hp-zbook-firefly-15-g8-uncovered-redefining-mobility-in-laptops/"><u>The HP ZBook Firefly 15 G8 Uncovered: Redefining Mobility in Laptops</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/transform-your-workday-top-9-motivations-to-switch-to-windows-outlook/"><u>Transform Your Workday: Top 9 Motivations to Switch to Windows' Outlook</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/ultimate-tutorial-on-transforming-gxf-media-into-popular-video-formats-like-mp4/"><u>Ultimate Tutorial on Transforming GXF Media Into Popular Video Formats Like MP4</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/use-proper-punctuation-grammar-and-capitalization-to-maintain-professionalism-in-your-title-without-relying-solely-on-all-caps-for-emphasis-which-could-be-i4/"><u>Use Proper Punctuation, Grammar, and Capitalization to Maintain Professionalism in Your Title without Relying Solely on All Caps for Emphasis (Which Could Be Interpreted as Shouting).</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-discovering-instagram-de-follows-quickly/"><u>[New] Discovering Instagram De-Follows Quickly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-blitzing-through-images-on-win11/"><u>[Updated] Blitzing Through Images on Win11</u></a></li>
+<li><a href="https://win-able.techidaily.com/2023s-best-fixes-for-smoother-gameplay-overcoming-minecraft-stuttering/"><u>2023'S Best Fixes for Smoother Gameplay: Overcoming Minecraft Stuttering</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ais-role-in-content-creation-where-it-falls-short/"><u>AI's Role in Content Creation - Where It Falls Short</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/an-in-depth-look-at-chatgpt-unrestricted-models-are-they-right-for-you/"><u>An In-Depth Look at ChatGPT Unrestricted Models – Are They Right for You?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670055-9781515408727-byways-to-blessedness/"><u>Byways to Blessedness | Free Book</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/comprehensive-guide-creating-a-secure-backup-of-your-linux-machine-using-rsync/"><u>Comprehensive Guide: Creating a Secure Backup of Your Linux Machine Using Rsync</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-truecaller-application-evaluation/"><u>Comprehensive Truecaller Application Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dell-inspiron-3671-desktop-analysis-an-unpretentious-midrange-computer-system-overview/"><u>Dell Inspiron 3671 Desktop Analysis: An Unpretentious Midrange Computer System Overview</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/durability-and-ease-with-ergoheads-anti-fatigue-mats-an-in-depth-review/"><u>Durability and Ease with ErgoHead's Anti-Fatigue Mats - An In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/glion-dolly-electric-scooter-overview-premium-pricing-stylish-design-and-acceleration-insights/"><u>Glion Dolly Electric Scooter Overview - Premium Pricing, Stylish Design & Acceleration Insights</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-vivo-s17-pro-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Vivo S17 Pro FRP In 3 Different Ways</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/introducing-the-hp-stream-11-ultimate-compact-laptop-for-essential-tasks/"><u>Introducing the HP Stream 11: Ultimate Compact Laptop for Essential Tasks</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/is-the-oneplus-nord-n100-worth-your-money-a-detailed-budget-phone-evaluation/"><u>Is the OnePlus Nord N100 Worth Your Money? A Detailed Budget Phone Evaluation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-imac-enhancements-a-tutorial-for-intel-models/"><u>Mastering iMac Enhancements: A Tutorial for Intel Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portable-energy-revolutionized-expert-insight-on-the-acclaimed-maxoak-battery-unit/"><u>Portable Energy Revolutionized: Expert Insight on the Acclaimed MaxOak Battery Unit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-smart-shoppers-choice-comprehensive-assessment-of-the-no-nonsense-economical-macbook-pro-eby-procase-case/"><u>The Smart Shopper's Choice: Comprehensive Assessment of The No-Nonsense, Economical MacBook Pro Eby ProCase Case</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-excellence-in-hobbyist-flight-the-blade-e-flite-mcx2-rtf-rc-helicopter-reviewed/"><u>Unveiling Excellence in Hobbyist Flight: The Blade E-Flite mCX2 RTF RC Helicopter Reviewed</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/winxdvdand/"><u>WinXDVDで強化されたビデオ再生技術&ヒント集</u></a></li>
 </ul></div>
 

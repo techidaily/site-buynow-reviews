@@ -1,7 +1,7 @@
 ---
 title: Introductory Lighting Kit for Amateur Studios
-date: 2025-01-19T17:17:52.762Z
-updated: 2025-01-22T16:53:33.144Z
+date: 2025-01-29T07:21:00.054Z
+updated: 2025-01-30T04:12:35.257Z
 categories:
   - BestProducts
 description: This Article Describes Introductory Lighting Kit for Amateur Studios
@@ -23,7 +23,7 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
@@ -52,10 +52,6 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Tony Mitera
 
 [View On EBay](https://www.ebay.com/p/563813511)
@@ -80,7 +76,7 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: A lot of power packed into a small frame**
@@ -93,6 +89,10 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: It can’t realistically be much simpler**
 
  Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
@@ -100,10 +100,6 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
  Lifewire / Tony Mitera
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Plenty of power for all your needs**
 
@@ -113,6 +109,10 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
  There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
@@ -121,15 +121,15 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -178,19 +178,22 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-the-art-of-freezing-the-action-in-win-os/"><u>[Updated] 2024 Approved The Art of Freezing the Action in Win OS</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-from-standard-definition-to-high-dynamic-range-a-comprehensive-tutorial-for-2024/"><u>[Updated] From Standard Definition to High Dynamic Range - A Comprehensive Tutorial for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-ultimate-ig-music-companion/"><u>2024 Approved The Ultimate IG Music Companion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apples-most-economical-and-powerful-a-review-of-the-new-ipad-1-102/"><u>Apple's Most Economical and Powerful: A Review of the New iPad 1지원 10.2</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dominate-the-galaxy-with-offworld-trading-company-insights-and-tips-for-budding-entreprnopreneurs/"><u>Dominate the Galaxy with Offworld Trading Company: Insights and Tips for Budding Entreprnopreneurs</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-oneplus-12-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-your-disabled-apple-iphone-11-pro-without-itunes-in-5-ways-by-drfone-ios/"><u>In 2024, Unlock Your Disabled Apple iPhone 11 Pro Without iTunes in 5 Ways</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-verified-vids-the-reality-of-instas-self-validation/"><u>In 2024, Verified Vids The Reality of Insta’s Self-Validation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/most-efficient-and-convenient-portable-chargers-for-laptops/"><u>Most Efficient and Convenient Portable Chargers for Laptops</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/netgears-marvel-of-wireless-technology-a-detailed-look-at-the-nighthawk-x4-mesh-wi-fi-range-expander-review/"><u>Netgear's Marvel of Wireless Technology: A Detailed Look at the Nighthawk X4 Mesh Wi-Fi Range Expander Review</u></a></li>
-<li><a href="https://win11.techidaily.com/troubleshooting-discord-resolving-unresizeable-gif-issues-in-win11/"><u>Troubleshooting Discord: Resolving Unresizeable GIF Issues in Win11</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/ultimate-mp4-to-social-media-focus-on-facebook/"><u>Ultimate MP4 to Social Media Focus on Facebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unraveling-the-mystery-behind-spyros-rebirth-a-miniature-hero-with-massive-appeal/"><u>Unraveling the Mystery Behind Spyro's Rebirth: A Miniature Hero with Massive Appeal</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-ultimate-list-of-leading-cable-modems/"><u>Unveiling the Ultimate List of Leading Cable Modems</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-nvidia-screen-recorder-record-games-with-ease-for-2024/"><u>[New] NVIDIA Screen Recorder - Record Games with Ease for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-expert-methods-for-flipping-image-colors/"><u>[Updated] 2024 Approved Expert Methods for Flipping Image Colors</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-live-video-quest-evaluating-the-strengths-of-obs-and-twitch-studio/"><u>[Updated] 2024 Approved Live Video Quest Evaluating the Strengths of OBS and Twitch Studio</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleash-youtube-dominance-a-comprehensive-guide-to-studio-success/"><u>[Updated] Unleash YouTube Dominance A Comprehensive Guide to Studio Success</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bose-qc35-ii-showcase-audiophiles-silence-seeker/"><u>Bose QC35 II Showcase: Audiophile's Silence Seeker</u></a></li>
+<li><a href="https://win-blog.techidaily.com/bring-back-the-boom-solutions-for-noise-problems-in-fallout-4-pc-games/"><u>Bring Back the Boom: Solutions for Noise Problems in Fallout 4 PC Games</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-selection-of-gym-trackers-and-wearables/"><u>Elite Selection of Gym Trackers and Wearables</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/examining-the-essence-of-w15a-photo-frames/"><u>Examining the Essence of W15A Photo Frames</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-finest-big-screen-laptops-of-2024-17-inches/"><u>Expert Review: The Finest Big-Screen Laptops of 2024 (17 Inches)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-unveiling-the-intelligent-capabilities-of-the-linksys-ea9500-router/"><u>Expert Review: Unveiling the Intelligent Capabilities of the Linksys EA9500 Router</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/1719818350627-geforce-1060-get-new-nvidia-drivers-now/"><u>GeForce 1060: Get New Nvidia Drivers Now!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-craft-professional-episodes-a-comprehensive-guide-to-editing-in-garageband/"><u>In 2024, Craft Professional Episodes A Comprehensive Guide to Editing in GarageBand</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-tp-link-av1300-wireless-range-extender-living-up-to-expectations-an-in-depth-review/"><u>Is the TP-Link AV1300 Wireless Range Extender Living Up to Expectations? An In-Depth Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-voice-recognition-tools-reviewed/"><u>Leading Voice Recognition Tools Reviewed</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-basics-of-at-home-electric-car-power-up/"><u>Mastering the Basics of At-Home Electric Car Power Up</u></a></li>
+<li><a href="https://app-tips.techidaily.com/protonmail-unveils-new-secure-password-management-tool-featuring-military-grade-encryption/"><u>ProtonMail Unveils New Secure Password Management Tool Featuring Military-Grade Encryption</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-premium-usb-wi-fi-controllers-for-the-year-2024/"><u>Ultimate Selection of Premium USB Wi-Fi Controllers for the Year 2024</u></a></li>
 </ul></div>
 

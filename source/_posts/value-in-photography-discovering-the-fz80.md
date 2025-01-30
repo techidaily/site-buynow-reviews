@@ -1,7 +1,7 @@
 ---
 title: Value in Photography - Discovering the FZ80
-date: 2024-08-22T16:08:49.791Z
-updated: 2024-08-23T16:08:49.791Z
+date: 2025-01-25T05:09:18.599Z
+updated: 2025-01-30T06:24:38.375Z
 categories:
   - BestProducts
 description: This Article Describes Value in Photography - Discovering the FZ80
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/P0Z-EiIsLrbIygF_tvrq0-blP1k=/400x300/fi
 
  We recommend buying the[Fujifilm Instax Mini 11](https://www.amazon.com/dp/B085286JCJ?linkCode=ogi&th=1&ascsubtag=6753002%7Cn12478a107f3648588d94d063fc7da8f321%7C&tag=lifewire-onsite-prod-20) since it's a great deal and easy to use. We also like the[Polaroid Now I-Type Instant Camera](https://www.amazon.com/dp/B08W9LHG4N?linkCode=ogi&th=1&ascsubtag=6753002%7Cn12478a107f3648588d94d063fc7da8f321%7C&tag=lifewire-onsite-prod-20) because it offers full-size prints and that classic Polaroid look.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ### Why Trust Us
 
  I've been a freelance writer and photographer since 2017 and have shot everything from street scenes to sports. I've used brands from Nikon to Canon and beyond, mirrorless and DSLR systems, and shot analog film. My professional photo clients include universities, local businesses, and people who need a good headshot. As a writer, I've also researched various tech products to compile best-of lists, from DSLRs to photo printers to camera straps—[John Bogna](https://www.lifewire.com/john-bogna-5705941) .
@@ -62,8 +59,9 @@ Lifewire/John Bogna
 * **What do buyers say?** 84% of Amazon reviewers rate this camera five stars from an average of over 23,000 reviews.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bigger Prints
 
 [Polaroid Now I-Type Instant Camera](https://www.walmart.com/ip/Polaroid-Originals-Now-i-Type-Instant-Film-Camera-Black-and-White/577526457)
@@ -106,17 +104,15 @@ Lifewire/John Bogna
 Lifewire/John Bogna
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Or Maybe These?
 
 * **I want Bluetooth.** The[Fujifilm Instax Mini Evo Instant Film Camera](https://www.amazon.com/Fujifilm-Instax-Mini-Instant-Camera/dp/B0C6D6GL2Q?tag=lifewire-onsite-prod-20&ascsubtag=6753002%7Cn12478a107f3648588d94d063fc7da8f321%7C) has all the cool stuff you get with the Mini 11, Bluetooth, and a preview screen.
 * **What about color filters?** The[Polaroid Now+](https://www.amazon.com/dp/B09CQFRKD7?tag=lifewire-onsite-prod-20&ascsubtag=6753002%7Cn12478a107f3648588d94d063fc7da8f321%7C) has all the features of the Polaroid Now and adds a Bluetooth-connected app and a pack of color filters.
 * **Is there an instant camera that offers more than one print size?** The[Fujifilm Instax Wide 300](https://www.amazon.com/Fujifilm-Instax-Wide-300-Instant/dp/B00TGOWK3Q?tag=lifewire-onsite-prod-20&ascsubtag=6753002%7Cn12478a107f3648588d94d063fc7da8f321%7C) is an excellent instant camera that outputs small prints and photos two times as wide.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## How We Test and Rate Instant Cameras
 
  Each camera was evaluated in the following categories:
@@ -130,8 +126,9 @@ Lifewire/John Bogna
  Considering these factors, I tested each camera in multiple situations, from indoor portrait shoots to bright daylight to dusk.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Instant Cameras We Tested
 
 * Canon IVY CLIQ 2
@@ -165,6 +162,10 @@ Lifewire/John Bogna
 
 [The Best Tech Gifts Under $50](https://www.lifewire.com/best-gifts-under-50-8385339)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What to Look For
 
  When shopping for an affordable instant film camera, there are a few things you'll want:
@@ -177,15 +178,16 @@ Lifewire/John Bogna
 
  Few things are more painful than your camera dying in the middle of a shoot. Since these cameras don't have many high-tech features, the battery lasts quite a while after each charge. The Fuji Instax uses AA batteries, which also last long but must be removed to avoid corrosion if you store the camera away. Get a model with a rechargeable battery to avoid the hassle of dealing with AAs.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Film Quality
 
  You don't buy an instant film camera for tack-sharp detail and perfect color — you buy it for the old-school look. Instant film prints have a dreamy quality, high-contrast and low-detail look that feels more like 35mm film than a digital snap.
 
  You'll want to consider the price of each type of film, as some will be more expensive than others and add to the overall price of whatever camera you select. If you're working on a budget, find a film that delivers the look you want without costing too much per shot.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Controls and Ergonomics
 
  Look for a lightweight camera with controls that are easy to access when taking a photo and a design that won't get in the way. The shutter button should be unobtrusive and easy to reach, as should any other relevant controls like the flash switch or self-timer.
@@ -211,8 +213,6 @@ Lifewire/John Bogna
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -220,4 +220,24 @@ Lifewire/John Bogna
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-unveiling-the-best-editing-suites-post-vimeo/"><u>[Updated] In 2024, Unveiling the Best Editing Suites Post-Vimeo</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-banners-makers-10plus-online-tools-to-create-channel-art/"><u>2024 Approved Youtube Banners Makers 10+ Online Tools to Create Channel Art</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/effective-solutions-to-overcome-realtek-universal-chipset-drives-problems/"><u>Effective Solutions to Overcome Realtek Universal Chipset Drives Problems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-best-in-class-kobo-clara-colour-a-complete-review-for-readers/"><u>Exploring the Best-in-Class Kobo Clara Colour: A Complete Review for Readers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-tecno-pova-6-pro-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Tecno Pova 6 Pro 5G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-asus-rog-phone-8-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-infinix-note-30-vip-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Infinix Note 30 VIP To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-artisans-approach-to-color-balancing/"><u>In 2024, The Artisan's Approach to Color Balancing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-orbi-tri-band-mesh-wireless-6-system-ensuring-rapid-connection-in-every-corner/"><u>In-Depth Analysis of the Orbi Tri-Band Mesh Wireless 6 System: Ensuring Rapid Connection in Every Corner</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-pioneer-bdr-xd05b-dvd-burner-unveiling-key-design-flaws/"><u>In-Depth Analysis of the Pioneer BDR-XD05B DVD Burner: Unveiling Key Design Flaws</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-the-extollo-lansocket-1500-a-technical-perspective-on-lightning-fast-data-rates-ultra-low-delay-and-power-transmission-capabilities/"><u>Inside the Extollo LANSocket 1500: A Technical Perspective on Lightning-Fast Data Rates, Ultra Low Delay & Power Transmission Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-reading-habits-how-the-kobo-clara-hd-became-a-must-have-accessory-for-bookworms/"><u>Revolutionizing Reading Habits: How the Kobo Clara HD Became a Must-Have Accessory for Bookworms.</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-xiaomi-redmi-note-13-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Xiaomi Redmi Note 13 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/safe-and-reliable-child-friendly-underwater-cameras/"><u>Safe & Reliable Child-Friendly Underwater Cameras</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/successfully-launching-payday-2-on-your-computer-a-step-by-step-guide/"><u>Successfully Launching Payday 2 on Your Computer: A Step-by-Step Guide</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210791568-9780760385784-the-complete-book-of-birthdays-gift-edition/"><u>The Complete Book of Birthdays - Gift Edition | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-groundbreaking-transformation-of-apple-macbook-pro-m1-2020-in-depth-analysis/"><u>The Groundbreaking Transformation of Apple MacBook Pro (M1, 2020) - In-Depth Analysis</u></a></li>
+</ul></div>
 

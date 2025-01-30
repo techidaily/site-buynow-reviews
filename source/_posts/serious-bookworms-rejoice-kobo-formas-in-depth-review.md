@@ -1,7 +1,7 @@
 ---
 title: "Serious Bookworms Rejoice: Kobo Forma's In-Depth Review"
-date: 2024-08-15T09:30:44.054Z
-updated: 2024-08-16T09:30:44.054Z
+date: 2025-01-26T04:12:32.695Z
+updated: 2025-01-29T20:33:41.501Z
 categories:
   - BestProducts
 description: "This Article Describes Serious Bookworms Rejoice: Kobo Forma's In-Depth Review"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/c8dbce1c74281f36fde9f94890a2f512f0b16b026
 
 ## Anker PowerCore+ 26800 Battery Pack
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Anker](https://www.lifewire.com/thmb/lNQbd16pbRC0R9DGxN2t8vYzL7o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_HEROWebSQUARE-5c90fd70c9e77c0001eb1cc6.jpg)
 
 Lifewire / Gannon Burgett
@@ -41,8 +38,9 @@ Lifewire / Gannon Burgett
 4.8
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Anker PowerCore+ 26800 Battery Pack
 
 ![Anker](https://www.lifewire.com/thmb/B8fIpC1_9JQjWCu_QhJoNePOP2Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_HEROWebSQUARE-5c90fd70c9e77c0001eb1cc6.jpg)
@@ -70,16 +68,18 @@ Lifewire / Gannon Burgett
  Anker has made a name for itself as one of the most reliable gadgets and accessories manufacturers in the game. Despite their reasonable prices, the quality continues to impress and its Anker PowerCore+ 26800 PD with 30W Power Delivery Charger is no exception. We've spent some time with this laptop battery charger and put it to the test to see just how well Anker's compact battery pack holds up against a variety of gadgets.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Plush and light for travelers**
 
  If you've owned any Anker products, you'll immediately recognize the PowerCore+ 26800\. It features a minimal rectangular design made of extruded aluminum with rounded edges for a very smooth look and feel. It weighs roughly 1.3 pounds, which gives it a premium feel without feeling too heavy.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![Anker](https://www.lifewire.com/thmb/brfc42RYlVrJLOHjyc0IbNzEQ0k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_5Web-5c90fc18c9e77c0001ac191d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -91,15 +91,16 @@ Lifewire / Gannon Burgett
 
 ![Anker](https://www.lifewire.com/thmb/Ps-fDFicjMGSS8OppN-xw5yn_mg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_1-Web-5c90fc3dc9e77c0001eb1cc5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  Our device came approximately 50% charged based on the battery life indicator lights on the top. We immediately burned through what battery life it had so we could start fresh with testing to see how quickly the 30W wall charger could fill the 26800mAh capacity.
 
  It's a no-frills design that looks great when paired with any clean, modern device if you care about form as much as function.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Charging Speed and Battery: Slow and steady wins this race**
 
  From zero percent battery life, the PowerCore+ 26800 charged to 100% in four hours flat, both in our initial test and our eight additional battery cycles, with only ten or fifteen-minute variances. This time lines up perfectly with Anker's given timeframe, which states it will charge in four hours when using the included 30W[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) wall charger and USB Type-C cable.
@@ -110,14 +111,15 @@ Lifewire / Gannon Burgett
 
  For the smartphones, we made sure the PowerCore+ 26800 was charged up entirely and ran both the iPhone XS and Samsung Galaxy S8 Active through complete battery cycles until the battery pack was out of juice. The iPhone XS was charged six and a half times with an average time of an hour and a half using the PowerIQ USB port with a Lightning cable. The Samsung Galaxy S8 Active, on the other hand, managed seven and a half charges with an average charge time of an hour and fifteen minutes using the included USB Type-C to USB Type-C cable.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Anker](https://www.lifewire.com/thmb/tJwshohQXfV-U0_iKVTCkHEhFLU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_6Web-5c90fcc6c9e77c0001a92733.jpg)
 
  Lifewire / Gannon Burgett
 
  We tested the PowerCore+ 26800 on our 2016 MacBook Pro 15-inch four different times to get a solid average. With the laptop completely dead, the battery pack managed to charge it to 100% in just three and a half hours with a little battery life to spare.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Perfectly priced for its power**
 
@@ -137,9 +139,6 @@ Lifewire / Gannon Burgett
 
  Yes, it's a little more expensive than its RAVPower contemporary, but considering the included accessories and more thoughtful design, it makes it worth it to spring the extra cash, especially when you take into account the 18-month warranty Anker offers.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [MaxOak 185Wh/50000mAh Battery Pack](https://www.lifewire.com/maxoak-185wh-50000mah-battery-pack-review-4589398)
@@ -161,14 +160,11 @@ Lifewire / Gannon Burgett
 * Warranty  18 months
 * Compatibility  Android, iOS
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -177,4 +173,20 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-galaxy-s8-review-a-leap-forward-with-4k-display/"><u>[New] 2024 Approved Galaxy S8 Review - A Leap Forward with 4K Display</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-craft-your-own-story-10-best-cost-free-ios-photo-collage-tools-for-2024/"><u>[New] Craft Your Own Story 10 Best, Cost-Free iOS Photo Collage Tools for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-beyond-popularity-metrics-understanding-trillers-distinct-features/"><u>2024 Approved Beyond Popularity Metrics Understanding Triller's Distinct Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-morning-radiance-with-totobays-latest-generation-wake-up-light-assessed/"><u>Affordable Morning Radiance with Totobay's Latest Generation Wake-Up Light Assessed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-apc-back-ups-pro-1500va-testimonial-high-capacity-and-efficient-hot-swap-feature/"><u>Comprehensive APC Back-UPS Pro 1500VA Testimonial: High Capacity & Efficient Hot Swap Feature</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/elevate-your-intellect-with-top-11-general-knowledge-quiz-networks/"><u>Elevate Your Intellect with Top 11 General Knowledge Quiz Networks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-list-7-low-cost-cell-service-plans-for-your-budget/"><u>Essential List: 7 Low-Cost Cell Service Plans for Your Budget</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-rockstar-games-red-dead-redemption-2-memory-issues-increasing-page-file-effectively/"><u>Fixing Rockstar Games Red Dead Redemption 2 Memory Issues: Increasing Page File Effectively</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-immersed-in-savings-with-metas-premium-512gb-oculus-quest-deal-leading-vr-sale-of-the-season-on-zdnet/"><u>Get Immersed in Savings with Meta’s Premium 512GB Oculus Quest Deal – Leading VR Sale of the Season on ZDNet!</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-unlocking-an-icloud-locked-ipad-and-apple-iphone-14-pro-by-drfone-ios/"><u>In 2024, Unlocking an iCloud Locked iPad and Apple iPhone 14 Pro</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/terramat-cubefit-evaluation-boost-your-activity-level-on-the-go/"><u>TerraMat CubeFit Evaluation: Boost Your Activity Level on the Go</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-picks-for-googles-battery-operated-wireless-nest-doorbells-comprehensive-review/"><u>Top Picks for Google's Battery-Operated Wireless Nest Doorbells - Comprehensive Review</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-techniques-to-enhance-mp4-sound-quality-across-all-platforms/"><u>Ultimate Techniques to Enhance MP4 Sound Quality Across All Platforms</u></a></li>
+</ul></div>
 

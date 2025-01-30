@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Gen 2 Upgrade to the Google Nest Hub - Understanding Its Full Potential Without Video Support
-date: 2025-01-18T19:43:32.525Z
-updated: 2025-01-22T19:10:43.140Z
+date: 2025-01-25T07:34:05.642Z
+updated: 2025-01-29T19:51:51.034Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Gen 2 Upgrade to the Google Nest Hub - Understanding Its Full Potential Without Video Support
@@ -18,13 +18,13 @@ thumbnail: https://www.lifewire.com/thmb/_nOB6lzooA58y-fATbEsfRW2Rn8=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cyberpunk 2077
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/lg-rMa42Ti9heFLfXVc2qNkjwk0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -84,10 +84,6 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/YQBwL9wFHphVzIqJYlYwd0J2OYU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-2-7e358ac09a2c48fbb0f6aaec1e9381e9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
 
 ## Story: Engaging and well written
@@ -110,6 +106,10 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/NwK7qVv8XDmr_i0b9XzULnmPZ9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-5-664cae2e38304560a7d6fc3ce2a84335.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
  The reason behind the driving issues seems to be largely an issue of perception, as they occur at high speeds, but unless you keep an eye on your speedometer it's very difficult to judge how fast you’re going. I often found myself going over a hundred, but my mind said I was traveling at half that or less. It would be better for the sake of gameplay if your wheels stuck to the asphalt a bit better, and it wouldn’t really be that unrealistic, given that it is 2077 after all; it makes sense for cars to handle better than they do in 2020.
@@ -123,10 +123,6 @@ Andy Zahn / Lifewire
  If you want to avoid conflict and don’t want to slow down for stupid drivers, your best bet is a motorcycle, and it is indeed a blast to go zipping through the streets dodging through gaps in traffic. For some reason, motorcycles control much more reliably than cars, and a cynical mind might suppose that more care was put into motorcycle control due to Cyberpunk featuring the brand of motorcycle owned by a major celebrity who plays a part in the game’s story.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -150,6 +146,10 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/Uqy4AEm6VMUR3LFH9U2FK5UDvo0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-3-28901c5bd3564eeea8e98bc9dbb8ae07.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
  Another area of customization is your cybernetic implants. These can affect everything from your netrunning skills to giving you swords and rocket launchers that pop out of your arms. You’ll need to visit a Ripperdoc to buy and install them, and they cost a pretty penny, so you’ll need to pull off a few jobs to afford them.
@@ -172,7 +172,15 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mature content: Pushing the boundaries
 
@@ -183,7 +191,7 @@ Andy Zahn / Lifewire
  The high quality of storytelling is probably the main highlight of the game, next to the insane graphical fidelity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Performance: Making strong GPUs cry
@@ -199,7 +207,7 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/toUXDFSRFZjol-BOgnhnVEyJTYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-8-7b54b824c3bc4dcfb04234f69204d2f6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -209,10 +217,6 @@ Andy Zahn / Lifewire
  The[PS5](https://www.lifewire.com/sony-playstation-5-review-5088394) and[Xbox Series X](https://www.lifewire.com/microsoft-xbox-series-x-review-one-power-packed-4k-console-5088039) may offer a more consistent experience (though not equivalent to high-end PC), but like 30 series Nvidia GPUs these devices are in high demand and short supply, and you won’t be free of bugs, glitches, and performance issues even there.
 
  An alternative worth considering if you have a robust high-speed internet connection is streaming the game on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) . This will allow you to experience the game at its best without having to invest in a two thousand dollar PC. However, it does leave your ability to play the game at the mercy of your ability to access a strong internet connection.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Graphics: Ahead of its time
 
@@ -231,10 +235,6 @@ Andy Zahn / Lifewire
  Again, it’s important to note that most players won’t see this spectacular vision of Night City due to the demanding hardware requirements, and that is a shame.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/o42yZx4igr8SBsJoS2Nc52n6m3U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-6-1b41a87ba1244122adf280147c09e5f1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -261,7 +261,7 @@ Andy Zahn / Lifewire
  Cyberpunk 2077 had enormous potential, but it launched long before it was complete and the result is a deeply conflicting experience. Game-breaking bugs, performance issues, missing features, and demanding hardware requirements make it difficult to recommend, but there is the core of something great lying within. There are hundreds of hours of content to enjoy if you can temper your expectations and employ a saintly degree of patience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -288,22 +288,18 @@ Andy Zahn / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-in-2024-visual-virtuosos-curating-the-best-10-camera-optics/"><u>[New] In 2024, Visual Virtuosos Curating the Best 10 Camera Optics</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-saturate-scenes-with-circular-edge-dilution-photosuite/"><u>[New] Saturate Scenes with Circular Edge Dilution PhotoSuite</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-effective-thumbnails-the-secret-to-video-success/"><u>[Updated] 2024 Approved Effective Thumbnails The Secret to Video Success</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-budget-wifi-router-of-2021-tp-link-archer-c80-comprehensive-review-and-assessment/"><u>Best Budget WiFi Router of 2021 - TP-Link Archer C80 Comprehensive Review and Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dissecting-the-necessity-and-impact-of-applecare-plus-extended-plan/"><u>Dissecting the Necessity and Impact of AppleCare Plus Extended Plan</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-microsoft-surface-studio-2-is-it-worth-the-investment/"><u>Expert Analysis of the Microsoft Surface Studio 2: Is It Worth the Investment?</u></a></li>
-<li><a href="https://win-data.techidaily.com/fonebackup-nutzen-um-icloud-mitteilungen-zu-lesen-tipps-und-tricks-fur-eine-einfache-bedienung/"><u>FoneBackup Nutzen, Um iCloud-Mitteilungen Zu Lesen: Tipps Und Tricks Für Eine Einfache Bedienung</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/interpreting-sentiments-the-rise-of-emotive-computation/"><u>Interpreting Sentiments: The Rise of Emotive Computation</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/optimize-virtual-memory-for-improved-windows-11-performance/"><u>Optimize Virtual Memory for Improved Windows 11 Performance</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/reducing-excessive-encoding-obs-broadcast/"><u>Reducing Excessive Encoding (OBS Broadcast)</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/snappydriver-update-113-insights-and-overall-impression/"><u>SnappyDriver Update 1.13 Insights and Overall Impression</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-apeman-c45e-dashcam-uncovered-top-picks-for-savvy-shoppers-on-a-budget/"><u>The Apeman C45e DashCam Uncovered: Top Picks for Savvy Shoppers on a Budget</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-internet-safety-gadgets-router-parental-controls-in-2e24/"><u>Ultimate Selection of Internet Safety Gadgets: Router Parental Controls in 2E24</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/understanding-apples-evolutionary-chip-technology-how-m1-m2-and-m3-impact-your-next-purchase/"><u>Understanding Apple's Evolutionary Chip Technology: How M1, M2 & M3 Impact Your Next Purchase</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-bang-for-your-buck-the-tcl-50s425-50-4k-tv-reviewed/"><u>Unveiling the Best Bang for Your Buck: The TCL 50S425 50 4K TV Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-most-impressive-iphone-yet-a-closer-look-at-the-iphone-12/"><u>Unveiling the Most Impressive iPhone Yet - A Closer Look at the iPhone 12</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/what-you-ought-to-consider-before-purchasing-a-smart-tv/"><u>What You Ought to Consider Before Purchasing a Smart TV</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-streaming-services-app-investigation-findings/"><u>[New] Streaming Services App Investigation Findings</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-accelerated-image-viewer-in-windows-environment/"><u>[Updated] In 2024, Accelerated Image Viewer in Windows Environment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-brains-behind-the-beauty-tcl-32-inch-led-with-roku-2019/"><u>Comprehensive Analysis of the Brains Behind the Beauty: TCL 32-Inch LED with Roku (2019)</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/creative-geniuses-in-naming-top-10-ai-powerhouse-generators/"><u>Creative Geniuses in Naming Top 10 AI Powerhouse Generators</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-windows-1011-click-no-open-folders/"><u>Eliminating Windows 10/11 Click No-Open Folders</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-soundcores-effective-anc-in-the-affordable-life-q30-headphones/"><u>Exploring Soundcore's Effective ANC in the Affordable Life Q30 Headphones</u></a></li>
+<li><a href="https://video-capture.techidaily.com/keeping-synchronization-fix-frame-disruptions-in-obs-for-2024/"><u>Keeping Synchronization Fix Frame Disruptions in OBS for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/navigate-the-managerial-maze-free-old-championship-soccer-management-guide/"><u>Navigate the Managerial Maze: Free Old Championship Soccer Management Guide</u></a></li>
+<li><a href="https://os-tips.techidaily.com/solving-the-issue-of-non-rotating-screens-on-your-iphoneipad/"><u>Solving the Issue of Non-Rotating Screens on Your iPhone/iPad</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-bose-qc35-ii-journey-an-insiders-look/"><u>The Bose QC35 II Journey - An Insider's Look</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-halo-bolt-jumper-and-portable-charger-assessment-unbeatable-battery-boost/"><u>Top Halo Bolt Jumper & Portable Charger Assessment: Unbeatable Battery Boost</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-capabilities-of-ankers-roav-dashcam-c1-our-detailed-review/"><u>Unveiling the Capabilities of Anker's Roav DashCam C1: Our Detailed Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-guide-delving-into-the-features-and-real-world-performance-of-midlands-lxt500vp3-model/"><u>User Guide: Delving Into the Features and Real-World Performance of Midland's LXT500VP3 Model</u></a></li>
 </ul></div>
 

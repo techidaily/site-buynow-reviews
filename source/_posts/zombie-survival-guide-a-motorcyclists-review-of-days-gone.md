@@ -1,7 +1,7 @@
 ---
 title: "Zombie Survival Guide: A Motorcyclist's Review of 'Days Gone'"
-date: 2025-01-20T17:46:32.964Z
-updated: 2025-01-22T17:10:20.987Z
+date: 2025-01-24T05:48:01.096Z
+updated: 2025-01-29T22:26:14.852Z
 categories:
   - BestProducts
 description: "This Article Describes Zombie Survival Guide: A Motorcyclist's Review of 'Days Gone'"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/ff27900c09b1e7c1dbf788a17f82a6622f15751a0
 ## 7 Days to Die
 
 ![7 Days to Die](https://www.lifewire.com/thmb/VJoNxFQndEBfEN4NQeMVjVAovNk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -47,10 +51,6 @@ Lifewire / Rebecca Isaacs
 ## 7 Days to Die
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -86,11 +86,11 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Plot: Open world horror sandbox**
 
@@ -107,14 +107,10 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Gameplay: Could be better, but solid overall**
 
@@ -136,11 +132,11 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/O0do2JbbpgP_VF7azi5OhENnDpc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-5-13eba1dcdd7d45b48c0c3d07711686e6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Graphics: Outdated, but detailed on optimal**
 
@@ -149,6 +145,10 @@ Lifewire / Rebecca Isaacs
  7 Days has a decent 3D graphics system that they’ve definitely improved as the alpha updates have been released. As a consequence, the minimum requirements have also increased. Those who play on minimum settings may want to take note of that. While we hope they’ll improve these over the next alpha updates, we are taking the graphics as they are at the time of this review, and right now, while they’re detailed on optimal settings, they could be better.
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Platform: It’s complicated**
 
@@ -159,10 +159,6 @@ Lifewire / Rebecca Isaacs
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -181,6 +177,10 @@ Lifewire / Rebecca Isaacs
 * The Last of Us Remastered
 * [Days Gone](https://www.lifewire.com/days-gone-review-4778364)
 * [Dying Light](https://www.lifewire.com/dying-light-review-4778324)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -209,20 +209,18 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-essential-tips-for-film-saving-and-trimming-in-adobe-connect-for-2024/"><u>[New] Essential Tips for Film Saving and Trimming in Adobe Connect for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-restoring-rightful-representation-amidst-misguided-chatter/"><u>[New] In 2024, Restoring Rightful Representation Amidst Misguided Chatter</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-final-cut-pro-x-for-instagram-optimizing-vertical-videos/"><u>[Updated] In 2024, Final Cut Pro X for Instagram Optimizing Vertical Videos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/audiophiles-choice-excellent-earmuffs-for-shows/"><u>Audiophile's Choice: Excellent Earmuffs for Shows</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/become-a-croatian-linguist-find-out-the-best-7-benefits-today/"><u>Become a Croatian Linguist – Find Out the Best 7 Benefits Today</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fongo-review-canada-voip-service/"><u>Fongo Review: Canada VoIP Service</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-youtube-video-builder-how-to-create-video-ads-for-free/"><u>In 2024, YouTube Video Builder How to Create Video Ads for Free?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-economical-lenovo-chromebook-duet-the-dual-function-device-breakdown/"><u>In-Depth Review of the Economical Lenovo Chromebook Duet: The Dual-Function Device Breakdown</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-through-anthropics-smart-photo-editor-pros-cons-and-performance-evaluation/"><u>Navigating Through Anthropics' Smart Photo Editor: Pros, Cons, and Performance Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nostalgic-camera-for-modern-travelers-powershot-g9-x-mark-ii-reviewed/"><u>Nostalgic Camera for Modern Travelers – PowerShot G9 X Mark II Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/punctualizing-playtime-a-comprehensive-guide-to-the-mirari-childrens-alarm-clock/"><u>Punctualizing Playtime: A Comprehensive Guide to the Mirari Children’s Alarm Clock</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resolve-non-scrolling-issue-in-microsoft-excel-pc/"><u>Resolve Non-Scrolling Issue in Microsoft Excel PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/syma-x5c-rc-quadcopter-evaluation-a-cost-effective-starter-drone/"><u>SYMA X5C R/C Quadcopter Evaluation: A Cost-Effective Starter Drone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/top-5-digital-tools-for-enhancing-web-streams/"><u>Top 5 Digital Tools for Enhancing Web Streams</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/troubleshooting-guide-fixing-page-not-loading-errors-on-manycam-platform/"><u>Troubleshooting Guide: Fixing 'Page Not Loading' Errors on ManyCam Platform</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-in-depth-tutorial-for-gameplay-recorders-on-win10/"><u>[New] 2024 Approved In-Depth Tutorial for Gameplay Recorders on Win10</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-enhancing-social-media-engagement-with-branded-icons-on-instagram-for-2024/"><u>[New] Enhancing Social Media Engagement with Branded Icons on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-optimizing-fb-techniques-for-shooting-and-posting-360-vids-for-2024/"><u>[New] Optimizing FB Techniques for Shooting & Posting 360 Vids for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-blur-and-background-erasure-in-photography/"><u>[New] The Ultimate Guide to Blur and Background Erasure in Photography</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-exploring-profit-sharing-in-youtube-short-creation/"><u>2024 Approved Exploring Profit Sharing in YouTube Short Creation</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-top-7-dslr-gear-for-professional-influencers-live-demonstrations/"><u>2024 Approved Top 7 DSLR Gear For Professional Influencers' Live Demonstrations</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-infinix-smart-8-hd-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/behind-chatgpts-innovation-who-are-the-brain-trust/"><u>Behind ChatGPT's Innovation: Who Are The Brain Trust?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-garmin-forerunner/"><u>Comprehensive Garmin Forerunner</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ps5s-lackluster-launcher-an-underwhelming-review-of-godfall/"><u>PS5's Lackluster Launcher: An Underwhelming Review of Godfall</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-gamers-essentials-expert-review-on-the-oculus-quest-2-elite-straps-with-convenient-carry-case/"><u>The Gamer's Essentials – Expert Review on the Oculus Quest 2 Elite Straps with Convenient Carry Case</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-large-desk-mouse-pads-the-ultimate-guide-to-the-best-mousing-surfaces/"><u>Top-Rated Large Desk Mouse Pads: The Ultimate Guide to the Best Mousing Surfaces</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unihertz-atom-xl-review/"><u>Unihertz Atom XL Review</u></a></li>
 </ul></div>
 

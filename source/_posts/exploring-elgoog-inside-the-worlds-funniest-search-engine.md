@@ -1,7 +1,7 @@
 ---
 title: "Exploring elgooG: Inside The World's Funniest Search Engine"
-date: 2025-01-21T16:14:18.732Z
-updated: 2025-01-22T17:56:06.302Z
+date: 2025-01-24T03:22:55.450Z
+updated: 2025-01-29T21:06:02.042Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring elgooG: Inside The World's Funniest Search Engine"
@@ -74,6 +74,10 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/W0-czfRzA-7ixa5VS8Cb4sBcaqM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_02-b2292f1ee1b54f4e9990c92e582c5a4b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 ## Design: An accessory that blends in
@@ -84,11 +88,11 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/QHImxX0EsYwunnnS2aNtTX9j80s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_03-66da73beea854cd39f6c35c06975ef4e.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Comfort: Streamlined but not immune to typical fit issues
 
@@ -100,10 +104,6 @@ Lifewire / Yoona Wagener
 
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Performance: Constantly monitoring movement, not performance
 
  While this streamlined device doesn’t log detailed workout metrics, the Halo has the upper hand when it comes to continuously monitoring movement—and sedentary stints throughout the day. Whether you’re sitting at a desk or venture out for an errand, the Halo will capture that and pretty accurately categorize it. It consistently registered walking and running activities, though the readout wasn’t very accurate for the latter. Truthfully, I don’t get the impression that that’s the point of the Halo.
@@ -111,6 +111,10 @@ Lifewire / Yoona Wagener
  Instead, the Halo presents all activity data through a convenient point-tracking system. The weekly goal is 150, which converts to 150 minutes of cardiovascular activity, as recommended by the American Heart Association. Periods of movement and exercise count toward this point goal, while periods of non-movement subtract from points earned. It’s a digestible system that offers a new twist on the steps or movement alert functions you’ll find in fitness trackers and[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) from Samsung, Garmin, Fitbit, and others. This system was an encouraging reset from those reminders that sometimes feel more annoying than motivating.
 
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener.
 
@@ -122,6 +126,10 @@ Lifewire / Yoona Wagener
 
  The body fat scan is based on pictures uploaded to the app—and based on prompts from the app. While it felt invasive and isn’t a feature I’d seek out in a fitness tracker, it worked without issue. Amazon reports that this technology is twice as accurate as smart scales. For the right user who feels comfortable with this kind of data compilation, this feature also offers visualizations of how different body fat percentages would look on your frame and stores your scans for a look at trends over time. All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the[cloud](https://www.lifewire.com/what-is-cloud-computing-817770) , which Amazon assures is private and well secured.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Software: An essential and user-friendly mobile app
 
  Without a visual display to interact with, the accompanying Halo mobile app is absolutely essential to the user experience. It delivers helpful explanations and guidance that most users want. Compatible with[iOS](https://www.lifewire.com/what-is-ios-1994355) and[Android](https://www.lifewire.com/what-is-google-android-1616887) phones, the Halo app makes everything from the initial setup to body scanning and voice tracking straightforward. Sleep data is backed up by explanations as is the activity point tracking system. Automatically tracked workout data is also easily accessible and so is the option to manually upload workout activities (there are 38 to choose from, including an all-encompassing Other category).
@@ -132,10 +140,6 @@ Lifewire / Yoona Wagener
 
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Battery: Enough juice to last nearly a week
 
  Amazon says that with tone tracking enabled, the band should last up to seven days on a single charge. There are two options for tracking tone: one for more accuracy and one to optimize battery life. I chose the latter and found that the band lasted for six days, which comes close to the manufacturer’s claims. I also noticed that by manually muting the mic, the battery drained far less quickly than when I left it on to listen at all times.
@@ -144,23 +148,15 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/fBsShcBruhAWkg-kTKPWkYUaImo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_04-ee532fbe8d2f4e8195e63ed9dd45611a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price: A reasonable price for the feature set
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Amazon Halo vs. WHOOP Strap 3
 
@@ -179,6 +175,10 @@ Lifewire / Yoona Wagener
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -211,21 +211,19 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-archive-adventure-revisiting-classic-facebook/"><u>[New] Archive Adventure Revisiting Classic Facebook</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-obs-optimization-for-seamless-fb-broadcasting/"><u>[Updated] 2024 Approved OBS Optimization for Seamless FB Broadcasting</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-digital-magic-uncovering-premier-3d-animation-software-for-2024/"><u>[Updated] Digital Magic Uncovering Premier 3D Animation Software for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-quickstart-for-simple-smooth-nft-design/"><u>2024 Approved Quickstart for Simple, Smooth NFT Design</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhance-your-connectivity-with-the-slim-and-efficient-orlink-u631-wi-fi-stick-for-usb-ports/"><u>Enhance Your Connectivity with the Slim and Efficient ORLINK U631 Wi-Fi Stick for USB Ports</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-compact-marvel-in-depth-analysis-of-the-apple-iphone-12-mini/"><u>Exploring the Compact Marvel - In-Depth Analysis of the Apple iPhone 12 Mini</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/from-srt-to-the-future-mastering-xmlssattml-transforms-for-2024/"><u>From SRT to the Future Mastering XML/SSA/TTML Transforms for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Google Pixel Fold? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone 11 Pro Max</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-determining-if-applecareplus-is-a-smart-choice/"><u>Pros and Cons: Determining if AppleCare+ Is a Smart Choice</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/relive-retro-gaming-glory-with-our-comprehensive-review-of-super-mario-bros-on-nintendo-game-and-watch-handheld/"><u>Relive Retro Gaming Glory with Our Comprehensive Review of Super Mario Bros on Nintendo Game & Watch Handheld</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-sea-and-swim-spots-gear-guide/"><u>The Best Sea & Swim Spots Gear Guide</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-nokia-c12-plus-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Nokia C12 Plus Location | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-gps-running-watches-a-comprehensive-guide/"><u>Top-Rated GPS Running Watches : A Comprehensive Guide</u></a></li>
-<li><a href="https://driver-install.techidaily.com/upgrade-idt-audio-on-win7-system/"><u>Upgrade IDT Audio on Win7 System</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/vintage-gaming-spotlight-in-depth-review-of-the-nintendo-game-and-watch-super-mario-bros-edition/"><u>Vintage Gaming Spotlight: In-Depth Review of the Nintendo Game & Watch - Super Mario Bros Edition</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-editorprox-evaluation-extensive-reviews/"><u>[New] EditorProX Evaluation – Extensive Reviews</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-elite-ai-companions-for-chat/"><u>[Updated] 2024 Approved Elite AI Companions for Chat</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-gopro-hero-5-black-vs-nikon-keymission-170-which-one-is-better-for-2024/"><u>[Updated] GoPro Hero 5 Black vs Nikon Keymission 170 Which One Is Better for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-top-voice-changer-tools-for-youtubers-find-the-best-option-for-your-videos/"><u>[Updated] In 2024, Top Voice Changer Tools for YouTubers Find the Best Option for Your Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-crafting-youtube-playlists-for-optimal-listening/"><u>[Updated] The Art of Crafting YouTube Playlists for Optimal Listening</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/edit-like-a-pro-in-depth-tips-for-using-apples-hidden-image-editor-preview/"><u>Edit Like a Pro: In-Depth Tips for Using Apple's Hidden Image Editor, Preview</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/havit/"><u>HAVIT</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-apples-latest-innovation-redefines-performance-with-the-202n-macbook-pro-m1-13-inch-review/"><u>How Apple's Latest Innovation Redefines Performance with the 202N MacBook Pro (M1, 13 Inch) Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-retain-and-store-visual-elements-from-microsoft-word-templates/"><u>How to Retain and Store Visual Elements From Microsoft Word Templates</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-11-after-forgetting-my-pin-code-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone 11 After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-savor-the-hype-the-best-of-the-best-15-culinary-creations-from-tiktoks-food-influencers/"><u>In 2024, Savor the Hype The Best of the Best 15 Culinary Creations From TikTok’s Food Influencers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-simplified-srt-transformation-from-ttml-xml-and-ssa/"><u>In 2024, Simplified SRT Transformation From TTML, XML & SSA</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/travel-companion-g9-x-ii-vintage-charm-meets-functionality/"><u>Travel Companion G9 X II – Vintage Charm Meets Functionality</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
 </ul></div>
 

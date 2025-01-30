@@ -1,7 +1,7 @@
 ---
 title: "X-Plane 11 Global Flight Simulator Review: Excellent Visuals in a Next-Gen Flight Sim"
-date: 2025-01-21T19:06:35.877Z
-updated: 2025-01-22T18:09:44.488Z
+date: 2025-01-27T16:29:29.182Z
+updated: 2025-01-30T06:44:39.548Z
 categories:
   - BestProducts
 description: "This Article Describes X-Plane 11 Global Flight Simulator Review: Excellent Visuals in a Next-Gen Flight Sim"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
@@ -46,13 +46,13 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -83,6 +83,10 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -93,11 +97,11 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
@@ -115,10 +119,6 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -126,6 +126,10 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -136,10 +140,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -172,15 +172,14 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-essential-screen-recording-tools-a-comprehensive-educators-guide/"><u>[New] Essential Screen Recording Tools A Comprehensive Educator's Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-plotting-powerful-promotional-portraits/"><u>2024 Approved Plotting Powerful Promotional Portraits</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/authentic-nba-2k19-championship-basketball-gaming-adventure/"><u>Authentic NBA 2K19 Championship Basketball Gaming Adventure</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-motorola-moto-g73-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Motorola Moto G73 5G Phone?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-motorola-moto-g14-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Motorola Moto G14 to Roku | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-connectivity-an-expert-review-of-the-netgeer-nighthawk-x4-wi-fi-mesh-network-enhancer/"><u>Maximizing Connectivity: An Expert Review of the Netgeer NightHawk X4 Wi-Fi Mesh Network Enhancer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/senso-activbuds-wireless-headphones-review-affordable/"><u>Senso ActivBuds Wireless Headphones Review: Affordable</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-discords-problem-with-recording-gaming-sounds-effectively/"><u>Solving Discord's Problem with Recording Gaming Sounds Effectively</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-understanding-the-capabilities-of-garmin-gpsmap-64st/"><u>The Ultimate Guide to Understanding the Capabilities of Garmin GPSMAP 64St</u></a></li>
-<li><a href="https://fox-info.techidaily.com/unleash-the-potential-elevating-your-tiktok-unboxing-contents-like-count/"><u>Unleash the Potential Elevating Your TikTok Unboxing Content's Like Count</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-guide-choosing-the-best-stabilizing-accessories/"><u>[New] Ultimate Guide Choosing the Best Stabilizing Accessories</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/efficiently-total-up-multiple-excel-cells-a-comprehensive-tutorial/"><u>Efficiently Total Up Multiple Excel Cells - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/find-out-how-much-money-you-make/"><u>Find Out How Much Money You Make</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-12-mini-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 mini Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Vivo Y200? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-xperia-5-assessment-compact-yet-costly-features/"><u>Sony Xperia 5 Assessment - Compact Yet Costly Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranked-reviews-of-yakuza-like-a-dragon-the-essential-jrpg/"><u>Top Ranked Reviews of Yakuza: Like a Dragon – The Essential JRPG</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-how-to-spot-top-rated-economical-radar-detectors-like-the-passport-s55/"><u>Ultimate Guide: How to Spot Top-Rated, Economical Radar Detectors Like the Passport S55</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/what-does-chatgpts-instant-information-update-feature-mean-for-us/"><u>What Does ChatGPT's Instant Information Update Feature Mean for Us?</u></a></li>
 </ul></div>
 

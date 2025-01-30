@@ -1,7 +1,7 @@
 ---
 title: Evaluating the Performance of a Google Wireless Nest Doorbell for Home Security
-date: 2025-01-18T19:53:50.404Z
-updated: 2025-01-22T17:58:33.548Z
+date: 2025-01-25T16:17:33.364Z
+updated: 2025-01-30T03:59:23.941Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating the Performance of a Google Wireless Nest Doorbell for Home Security
@@ -18,16 +18,12 @@ thumbnail: https://www.lifewire.com/thmb/PrOlghN3xCpKcyP-YE0W3hxkm1s=/540x405/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Nokia 7.1
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/DoLSBgFTktsPC2bXGr524KRCkMs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_hero-14043634662d46998584bb21b3d7becd.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jordan Provost
@@ -93,6 +89,10 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/1cMJEwjyd7B1WxBO7uBZOm0C2So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_3-483bfb6a868848adaaf021846b9fb559.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
  The buttons are all located on the right side of the device, and they feature the same chamfered shape as the main body of the phone. The positioning of the buttons makes them easy to hit with your index finger when you hold the device in your left hand, or with your thumb if you hold it in your right.
@@ -108,6 +108,10 @@ Lifewire / Jordan Provost
  Setting up the Nokia 7.1 is a breeze if you have a Google account ready to go. Since it uses stock Android and is part of the Android One program, there aren’t any extra hoops to jump through. The only hiccup we experienced was the flood of required updates right out of the box—make sure you allow some extra time to download and install everything.
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/LkCNBmkQjVwHH-SoT7i4QFOrSsk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_1-83b2f49a5f2c4443b2b7f30b502fd094.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -135,10 +139,6 @@ Lifewire / Jordan Provost
 
  Despite these connectivity problems, we were still able to stream YouTube videos and music from Google Play over the data connection.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Display Quality: HDR quality with a chunky notch**
 
  The Nokia 7.1 has a 5.84-inch screen with a resolution of 2160 x 1090, laid out as a tall, narrow display with an aspect ratio of 19:9\. It has a chunky notch at the top for the front-facing camera and pleasantly rounded edges. The viewing angles are excellent, and the screen is bright enough to see in direct sunlight.
@@ -151,6 +151,10 @@ Lifewire / Jordan Provost
 
  The only problem with the Nokia 7.1’s display is that the color temperature is extremely cool. If you hold it next to any similar phone, you’ll notice a somewhat bluish tinge. The phone does include a “night mode” feature that tints the display in increasingly strong shades of amber after the sun goes down, which can help with eye strain at night. But if you’re sensitive to blue light, you may have trouble with this display.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Sound Quality: Loud, no distortion, but a lack of bass response**
 
  At the bottom of the Nokia 7.1’s aluminum body, you’ll find the microphone, a USB-C port, and two small rectangular cutouts. That’s where the sound comes from, and despite there being two cutouts, it’s all provided by a single driver.
@@ -160,7 +164,7 @@ Lifewire / Jordan Provost
  The speaker is serviceable, and we didn’t notice too much distortion when streaming music at high volumes. There is very little bass response though, even compared to other mid-range handsets. The speaker is there if you need it, but you’ll want to plug in headphones or use an external speaker whenever possible. The Nokia 7.1 does includes a headphone jack, located on the top edge of the device, and comes with a pair of earbuds in the box.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Camera/Video Quality: Surprisingly competent camera**
@@ -173,17 +177,21 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/VI32Dr6kjQKlJti1W9Egtq7kb10=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_2-b7780c375da34f349ba0c037120ee3ff.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Provost
 
 ![Nokia 7.1 rose photo](https://www.lifewire.com/thmb/4d-M-nqoc9xpcT44HdNVobPQU1U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/gs9-photo9-7b35a0c91bd544ae89dab81238efdda2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire
 
 ![Nokia 7.1 cat photo](https://www.lifewire.com/thmb/hepqa5K_YkbwuC1_7lRbkLgxJVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/cat-photo7-e1f061ad95324519a4cd85a39faeb1a7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire
 
@@ -193,10 +201,6 @@ Lifewire
 
  The hardware just isn’t there to challenge the best phone cameras found in flagship devices from the likes of Samsung, Apple, or Google, but the Nokia 7.1 doesn’t come with a flagship price tag either.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery: Enough to last through the work day**
 
  In our testing, we found the battery life to be somewhat lacking. We subjected the Nokia 7.1 to PCMark’s Work 2.0 battery test, which is designed to simulate constant web browsing and other tasks, and the battery petered out after about seven hours.
@@ -204,6 +208,10 @@ Lifewire
  In regular use, we found that the battery was able to stand up to a full day of phone calls, emails, and some light web browsing, video streaming, and playing music.
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/cD8xK_vs2o2eQxdv-D11RS_1jhE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_5-e19cf3cd1c1f41f69279dbbcf965caf3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -219,17 +227,9 @@ Lifewire
 
  With Google ending their own mid-range line of phones with the Nexus 5X and 6P, Android One devices like the Nokia 7.1 are now the best way to keep up with the newest Android features without paying a premium.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Solidly mid-range**
 
  The Nokia 7.1 is a mid-range handset in terms of price, but it packs a lot of features that you’d expect from a much more expensive phone. It retails for $349 which, in the world of ever-expanding handset price tags, almost borders on the budget category. For what you get in terms of style, specifications, and features, that’s a pretty good deal.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Stacks up well against the competition**
 
@@ -247,15 +247,15 @@ Lifewire
 
  The Nokia 7.1 isn’t a high-end device, but it brings a lot of premium quality and features to the table. If you’re in the market for a solid mid-range handset, you won’t do much better than this.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [OnePlus 6T](https://www.lifewire.com/oneplus-6t-phone-review-4589385)
 * [Nokia 6.1](https://www.lifewire.com/nokia-6-1-review-4689956)
 * [Motorola Moto G6](https://www.lifewire.com/motorola-moto-g6-review-4689366)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -292,21 +292,20 @@ Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-speed-demos-like-video-duo-for-rapid-growth/"><u>[New] 2024 Approved Instagram Speed Demos Like-Video Duo for Rapid Growth</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/6-game-changing-tactics-to-increase-watch-time-and-reduce-churn-rate-for-2024/"><u>6 Game-Changing Tactics to Increase Watch Time and Reduce Churn Rate for 2024</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/1728472036096-onedrive/"><u>一直在OneDrive找到更新問題? - 功用性發掘與解決流程指南</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/bring-back-the-battle-cry-solve-your-valheim-sound-glitch-on-windows-machines/"><u>Bring Back the Battle Cry: Solve Your Valheim Sound Glitch on Windows Machines</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/discover-a-smooth-transition-to-hps-windows-free-life-with-the-new-chromebook-insights-from-zdnet/"><u>Discover a Smooth Transition to HP's Windows-Free Life with the New Chromebook - Insights From ZDNet</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elevate-your-exercise-habits-using-fitbit-versa-3s-integrated-gps-function-and-diverse-range-of-wellness-apps-designed-to-inspire/"><u>Elevate Your Exercise Habits Using Fitbit Versa 3'S Integrated GPS Function and Diverse Range of Wellness Apps Designed to Inspire</u></a></li>
-<li><a href="https://win-able.techidaily.com/enhanced-gta-5-performance-eliminating-previous-stuttering-problems/"><u>Enhanced GTA 5 Performance: Eliminating Previous Stuttering Problems</u></a></li>
-<li><a href="https://discover-help.techidaily.com/free-collection-kid-friendly-walt-disney-films-and-complimentary-dvd-ripping-tools/"><u>Free Collection: Kid-Friendly Walt Disney Films & Complimentary DVD Ripping Tools</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/g9xii-review-the-perfect-companion-for-the-budding-vintage-style-travel-photographer/"><u>G9XII Review – The Perfect Companion for the Budding Vintage-Style Travel Photographer</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-chuckle-o-meter-starts-with-zero-mememasters-kit/"><u>In 2024, Chuckle-O-Meter Starts with Zero – MemeMasters Kit</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-xiaomi-redmi-note-13-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Xiaomi Redmi Note 13 5G Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-top-races-all-terrain-rc-rock-crawler-unmatched-performance-across-varied-landscapes/"><u>Review of Top Race's All-Terrain RC Rock Crawler: Unmatched Performance Across Varied Landscapes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-15-cheapest-ssl-certificates-are-they-worth-it/"><u>The 15 Cheapest SSL Certificates: Are They Worth It?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-discounts-on-roku-streaming-sticks-and-players-this-prime-day/"><u>Top Discounts on Roku Streaming Sticks & Players This Prime Day</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-oneplus-9-pro-a-detailed-look-at-its-sleek-design-swift-operation-and-photographic-excellence/"><u>Unboxing the OnePlus 9 Pro - A Detailed Look at Its Sleek Design, Swift Operation, and Photographic Excellence</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-high-speed-wifi-on-a-budget-with-the-tp-link-archer-a9-your-sub-100-guide/"><u>Unlocking High-Speed WiFi on a Budget with the TP-Link Archer A9 - Your Sub-$100 Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/void-common-pitfalls-with-proper-use-of-youtube-tags/"><u>[New] Avoid Common Pitfalls with Proper Use of YouTube Tags</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-obscure-watching-methods-5-unique-stories-apps/"><u>[Updated] Obscure Watching Methods 5 Unique Stories Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-utilizing-textual-elements-a-guide-to-augmenting-video-content-on-youtube/"><u>[Updated] Utilizing Textual Elements A Guide to Augmenting Video Content on YouTube</u></a></li>
+<li><a href="https://win-hot.techidaily.com/bebaskan-file-anda-dari-visual-studio-code-dengan-alasan-tidak-terjadi-di-github/"><u>Bebaskan File Anda Dari Visual Studio Code Dengan Alasan Tidak Terjadi Di GitHub</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deep-dive-into-the-lenovo-yoga-a940-an-ultimate-review-for-potential-buyers/"><u>Deep Dive Into the Lenovo Yoga A940: An Ultimate Review for Potential Buyers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/ideal-ps2-emulation-software-for-ios-users-for-2024/"><u>Ideal PS2 Emulation Software for IOS Users for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Vivo Y78+? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-x-fold-2-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Vivo X Fold 2 Phone without Any Data Loss</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lx310bt-sony-bluetooth-player-thin-and-stylish/"><u>LX310BT Sony Bluetooth Player - Thin & Stylish!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-through-conversational-ais-which-wins-between-chatgpt-and-huggingchat/"><u>Navigating Through Conversational AIs: Which Wins Between ChatGPT and HuggingChat?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-the-samsung-galaxy-chromebook-2-redefines-productivity-on-the-go/"><u>Review: The Samsung Galaxy Chromebook 2 Redefines Productivity On-the-Go</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/successful-steps-for-fixing-unsuccessful-network-card-driver-setup-insights-by-yl-computing/"><u>Successful Steps for Fixing Unsuccessful Network Card Driver Setup - Insights by YL Computing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-review-assessing-performance-and-aesthetics-of-ankers-powercoreplus-26800-battery-pack-setup/"><u>The Complete Review: Assessing Performance and Aesthetics of Anker's PowerCore+ 26800 Battery Pack Setup</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-reality-check-is-lgs-k92-5g-phone-a-worthy-investment/"><u>The Reality Check: Is LG's K92 5G Phone a Worthy Investment?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-your-photographic-creativity-using-no-cost-multiplatform-editing-app-the-free-lightzone-suite-windows-mac-linux/"><u>Unleash Your Photographic Creativity Using No-Cost, Multiplatform Editing App – The Free LightZone Suite (Windows, Mac, Linux)</u></a></li>
 </ul></div>
 

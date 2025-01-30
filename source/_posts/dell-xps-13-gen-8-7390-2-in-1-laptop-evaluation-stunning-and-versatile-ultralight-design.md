@@ -1,7 +1,7 @@
 ---
 title: "Dell XPS 13 Gen 8 (7390) 2-in-1 Laptop Evaluation: Stunning & Versatile Ultralight Design"
-date: 2025-01-16T17:34:19.680Z
-updated: 2025-01-22T19:59:53.342Z
+date: 2025-01-24T02:21:45.511Z
+updated: 2025-01-29T19:19:55.757Z
 categories:
   - BestProducts
 description: "This Article Describes Dell XPS 13 Gen 8 (7390) 2-in-1 Laptop Evaluation: Stunning & Versatile Ultralight Design"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/983f31d4ff46a88bf34dd06f49261024f8d7c362e
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/UTcUqy8dPDWlsYUZPdsu5EVj8HU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -48,6 +52,10 @@ Lifewire / Andrew Hayward
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/R_aYhYLFGT6--hIRDTNUJTlIVn8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -78,14 +86,10 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/radDS_2IRuzjTlZxUS5og2a3PIM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Top_04-b051e3660efc406ab97f92df654d3762.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Amazingly light, but not wholly convincing**
@@ -116,6 +120,10 @@ Lifewire / Andrew Hayward
 
  There's little reason to worry about getting the LG Gram 15.6-inch laptop up and running quickly. It has Windows 10 pre-installed, so you'll simply follow the onscreen prompts to enter your Wi-Fi info, check for updates, select a few options, and ultimately find yourself ready to roll on the desktop. It shouldn't take more than a handful of minutes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display: Large and capable enough**
 
  The LG Gram's 15.6-inch screen is good, but not great. It's certainly large: the widescreen panel stretches out longer than the 13-inch screens seen on a lot of ultraportable computers, and the extra real estate is absolutely noticeable. It gives you enough extra space to comfortably multitask, such as having a web browser and a document side-by-side, or a Slack window in full view to distract you from whatever you're supposed to be doing for work.
@@ -127,6 +135,10 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/TFbt9G36hk5JyrBL8cIdIuYQ66E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Keyboard_03-fd7e355ac5944f12a8107746d0afbf24.jpg)
 
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Solid power for everyday tasks**
 
@@ -155,7 +167,7 @@ Lifewire / Andrew Hayward
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Battery: Seriously amazing**
@@ -167,7 +179,7 @@ Lifewire / Andrew Hayward
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Hello, Windows (but no Windows Hello)**
@@ -175,10 +187,6 @@ Lifewire / Andrew Hayward
  The LG Gram 15.6-inch comes with Windows 10 Home preinstalled, and if you've used Windows over the years, then you should be pretty comfortable here. Windows 10 has lightly evolved the PC operating system with feature enhancements and tweaks without losing the classic, familiar DNA within, and it's the OS of choice for computer gaming and apps of all shapes and sizes. It's easy to use and understand, and runs well with the Intel Core i5 and an SSD onboard.
 
  Unfortunately, this entry-level model of the LG Gram 15.6-inch isn't able to take advantage of Windows Hello biometric security, as the camera above the display doesn't have the needed sensors for scanning your face. We missed the near-instantaneous facial recognition of the Surface Laptop 2, and having to type in a PIN number each time we opened up the lid. Pricier models of the laptop offer a fingerprint scanner, however.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Solidly priced, considering its strengths**
 
@@ -189,10 +197,6 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
 
@@ -207,10 +211,6 @@ Lifewire / Andrew Hayward
 **Well-built for productivity.**
 
  There are better all-around ultraportable laptops in this price range, and we had some issues with the feeling of the build, the keyboard layout, and the merely good display quality. However, if you're in the market for an incredibly light laptop with a big screen and a battery that lasts and lasts, it's hard to ignore the LG Gram 15.6-inch (2018). You get a very capable computer for the price, and it's a notebook that can legitimately last through a full workday even at max brightness.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -244,14 +244,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-discover-the-evolution-of-video-technology-with-mycams-review/"><u>[New] Discover the Evolution of Video Technology with MyCam's Review</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-optimize-your-instagram-post-with-music-stickers/"><u>[Updated] In 2024, How to Optimize Your Instagram Post with Music Stickers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-acurite-pro-01036m-weather-station-review-effortless-installation-and-durable-build/"><u>Comprehensive AcuRite Pro 01036M Weather Station Review: Effortless Installation & Durable Build</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-microsoft-surface-keyboard-evaluation-premium-quality-insights/"><u>Comprehensive Microsoft Surface Keyboard Evaluation: Premium Quality Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-stylish-asus-bw-16d1x-u-blu-ray-drive-impressive-design-though-not-without-quirks/"><u>Evaluating the Stylish Asus BW-16D1X-U Blu-Ray Drive - Impressive Design, Though Not Without Quirks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-next-level-interaction-with-third-generation-amazon-echo-show-10-the-mobile-smart-display-reviewed/"><u>Experience Next-Level Interaction with Third Generation Amazon Echo Show 10 - The Mobile Smart Display Reviewed</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-you-when-your-apple-iphone-12-is-off-drfone-by-drfone-virtual-ios/"><u>In 2024, Can Life360 Track You When Your Apple iPhone 12 is off? | Dr.fone</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-mastering-final-cut-pro-reversing-video-footage-with-ease/"><u>New 2024 Approved Mastering Final Cut Pro Reversing Video Footage with Ease</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/rotate-your-videos-for-free-top-online-video-flip-tools/"><u>Rotate Your Videos for Free Top Online Video Flip Tools</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-mp4-file-capture-comparative-study-and-reviews/"><u>[New] 2024 Approved MP4 File Capture Comparative Study & Reviews</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-8-most-critical-blunders-to-elude-as-a-rookie-youtuber/"><u>[New] 2024 Approved The 8 Most Critical Blunders to Elude as a Rookie YouTuber</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-perfect-the-art-of-note-taking-mematic-way/"><u>[Updated] 2024 Approved Perfect the Art of Note-Taking - Mematic Way</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-transform-your-farm-with-stardews-most-innovative-mods-7-best/"><u>2024 Approved Transform Your Farm with Stardew's Most Innovative Mods (7 Best)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-the-most-effective-key-finders-on-the-market-2024/"><u>Expert Picks: The Most Effective Key Finders on the Market - 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/free-10-high-quality-passport-photos-available-here-for-2024/"><u>Free 10 High-Quality Passport Photos Available Here for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/journey-through-sound-logitech-g533-headset-review-insights/"><u>Journey Through Sound: Logitech G533 Headset Review Insights</u></a></li>
+<li><a href="https://discover-community.techidaily.com/restore-your-data-step-by-step-strategies-for-recovering-lost-files-on-hard-drives-with-yl-software-solutions/"><u>Restore Your Data! Step-by-Step Strategies for Recovering Lost Files on Hard Drives with YL Software Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/selecting-your-ideal-tablet-in-depth-analysis-of-amazon-fire-vs-samsung-models/"><u>Selecting Your Ideal Tablet: In-Depth Analysis of Amazon Fire Vs. Samsung Models</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-deal-in-fitness-tracking-in-depth-look-at-the-budget-friendly-fitbit-versa-lite/"><u>The Best Deal in Fitness Tracking: In-Depth Look at the Budget-Friendly Fitbit Versa Lite</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-future-of-workstations-2018s-top-notch-featherweight-lg-gram-reviewed/"><u>The Future of Workstations: 2018'S Top Notch, Featherweight LG Gram Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-soundbot-sb210-a-winter-marvel-with-topnotch-sound-quality-when-fully-operational/"><u>The Soundbot SB210 - A Winter Marvel with Topnotch Sound Quality When Fully Operational</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-ultimate-guide-to-high-performance-pc-components-by-tom-hardscape/"><u>The Ultimate Guide to High-Performance PC Components by Tom Hardscape</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/top-solutions-for-when-your-desktop-audio-fails-to-function-correctly/"><u>Top Solutions for When Your Desktop Audio Fails to Function Correctly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-charge-up-analysis-exploring-the-beatit-bt-d11-boost-box-features/"><u>Ultimate Charge Up Analysis - Exploring the Beatit BT-D11 Boost Box Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-choosing-an-ergonomic-keyboard/"><u>Ultimate Guide to Choosing an Ergonomic Keyboard</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-ibuypowers-high-performance-gaming-desktops/"><u>Ultimate Guide to IBuypower's High-Performance Gaming Desktops</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-raspberry-pi-query-what-is-the-correct-answer-to-this-math-problem-8x-plus-3-5x-6/"><u>Unboxing the Raspberry Pi # Query: What Is the Correct Answer to This Math Problem? $8X + 3 = 5X - 6$</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-poco-c50-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Poco C50 | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unparalleled Quality, Top Performance in 430EX III-RT
-date: 2025-01-19T16:12:30.895Z
-updated: 2025-01-22T16:18:52.634Z
+date: 2025-01-24T06:20:39.881Z
+updated: 2025-01-30T01:44:38.695Z
 categories:
   - BestProducts
 description: This Article Describes Unparalleled Quality, Top Performance in 430EX III-RT
@@ -18,9 +18,17 @@ thumbnail: https://www.lifewire.com/thmb/5taQkbn_ks7zo2LZcB9Gq8aAQmw=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## LG Gram 17
 
 ![LG Gram 17](https://www.lifewire.com/thmb/0zpnOrKLwqRRUpo-KPu36eRNdjQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_LG-Gram-17-Inch-Thin-Laptop-1-26891b187a0c4260bbbe391a08f0e413.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -44,16 +52,12 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## LG Gram 17
 
 ![LG Gram 17](https://www.lifewire.com/thmb/Brkak7eYiULoHYDHouNlQuk3toQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_LG-Gram-17-Inch-Thin-Laptop-1-26891b187a0c4260bbbe391a08f0e413.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -113,10 +117,6 @@ Lifewire / Jonno Hill
 
 ![LG Gram 17](https://www.lifewire.com/thmb/mt69Vhar3JM30uFdBWA58_wPdYg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-5-f2352e95cadc4e2b99d738b0238fb7bf.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 ## **Display** :**A joy to use**
@@ -140,7 +140,7 @@ Lifewire / Jonno Hill
 ![LG Gram 17](https://www.lifewire.com/thmb/4DSmBdI2ZVvCXO9PXT1iEnSCRxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-6-5381cd4656aa4307ba017acf8ce77c4b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -149,22 +149,22 @@ Lifewire / Jonno Hill
 
  Having 16GB of Memory and a 512GB SSD makes the Gram a great choice for productivity purposes. We had no problem working with many browser windows open at the same time and switching back and forth between different applications. Shoppers looking to find a laptop with ample screen real estate and the specs necessary to deliver good performance now and into the future will be pleased with what the LG Gram 17 offers.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Audio** :**Sorry, what was that?**
 
  The[speakers](https://www.lifewire.com/all-about-speakers-4125129) on The LG Gram 17 are an afterthought at best, offering meek sounding audio originating from ill-placed speaker grills on the bottom. To make matters worse, these speakers are easily covered and muffled when it sits on your lap. Even when the stars aligned and we happened to leave the speakers unobstructed, we weren’t impressed by the sound offered. In short, get ready to use headphones or external speakers, and don’t plan on having any movie viewing parties with it either.
 
  Keep in mind though that while watching most standard 16:9 content, you aren’t taking advantage of all 17 inches of the display, and will see black bars on the top and bottom.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Network** :**Everything you’d expect**
 
  Wi-Fi on the LG Gram 17 gave us no trouble, offering a strong signal and speeds in any of the public and private environments we tested in. LG uses the Intel Wireless AC 9560 Wi-Fi adapter, the fastest of such chips currently on offer from Intel. This Wi-Fi adapter has a theoretical max speed of 1.73Gbps and offers a 2x2 antenna configuration, though you’re unlikely to ever hit such a high download speed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Camera** :**Bare minimum**
@@ -173,14 +173,10 @@ Lifewire / Jonno Hill
 
 ![LG Gram 17](https://www.lifewire.com/thmb/Q5UD3HDcQsoXbP-_uvKqYsR9J6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-3-de338d995c0544ee8052e30def24ad5f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Battery** :**Beyond plentiful**
@@ -200,6 +196,10 @@ Lifewire / Jonno Hill
  The LG Control Center gives users quick access to common system functions like power management, Windows security, and system settings. You can control the volume, disable the touchpad temporarily, manage screen and keyboard backlight brightness, and more. This might not be altogether_necessary_ , but users can simply not use it if they wish.
 
  Finally, the LG Gram 17 comes with Reader Mode as a pre-installed app that runs in the background on startup and is accessible from the taskbar. Switching it on changes the color temperature of the display to filter out blue light (by default) and make night-time and low-light usage more pleasant. You can also take control of the adjustments that Reader Mode makes, controlling the brightness, contrast, and gamma adjustments for red, green, and blue independently. This seems excessive, but we can’t fault LG too much for giving users more control.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Lighter laptop, bigger price tag**
 
@@ -253,18 +253,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/reaking-down-the-secrets-of-impactful-asmr-video-creation-for-2024/"><u>[New] Breaking Down the Secrets of Impactful ASMR Video Creation for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-ideal-avi-viewer-mobile-and-desktop-edition/"><u>[Updated] Ideal AVI Viewer Mobile & Desktop Edition</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-aesthetic-windowscape-top-picks-for-stunning-laptop-screen-designs/"><u>2024 Approved Aesthetic Windowscape Top Picks for Stunning Laptop Screen Designs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-top-performing-scanners-for-high-quality-document-and-photograph-digitization/"><u>2024'S Top-Performing Scanners for High-Quality Document and Photograph Digitization</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-lenovo-chromebook-duet-cube-analysis-a-detailed-look-at-the-cost-effective-convertible/"><u>Affordable Lenovo Chromebook Duet Cube Analysis - A Detailed Look at the Cost-Effective Convertible</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-radar-detectors-with-extended-monitoring-capabilities/"><u>Affordable Radar Detectors with Extended Monitoring Capabilities</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordably-fast-ev-charging-unravel-the-best-powerdrive-solutions-by-anker/"><u>Affordably Fast EV Charging – Unravel the Best PowerDrive Solutions by Anker</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/comprehensive-computer-and-hardware-analysis-at-toms-resource-center/"><u>Comprehensive Computer and Hardware Analysis at Tom's Resource Center</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722631230795-deciding-between-streaming-giants-roku-vs-fire-tv-stick-features-faceoff-to-help-you-decide/"><u>Deciding Between Streaming Giants: Roku vs Fire TV Stick, Features Faceoff to Help You Decide!</u></a></li>
-<li><a href="https://fox-http.techidaily.com/digital-dreamscapes-compared-metaverse-vs-omniverse-in-the-limelight/"><u>Digital Dreamscapes Compared Metaverse Vs. Omniverse in the Limelight</u></a></li>
-<li><a href="https://fox-that.techidaily.com/experiencing-issues-with-one-airpod-heres-your-comprehensive-fix-list/"><u>Experiencing Issues with One AirPod? Here's Your Comprehensive Fix List</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-nubia-red-magic-8s-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/soil-spinners-finding-the-next-stardew-title-for-2024/"><u>Soil Spinners Finding the Next Stardew Title for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-step-by-step-screencasting-team-virtual-gatherings/"><u>[New] 2024 Approved Step-by-Step Screencasting Team Virtual Gatherings</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-beginners-blueprint-unlocking-ps-magic/"><u>[New] Beginner's Blueprint Unlocking PS Magic</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-drone-tech-present-implementation-and-future-vision/"><u>[Updated] Drone Tech Present Implementation & Future Vision</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/combining-gmail-and-outlook-on-pc-easy-steps-included/"><u>Combining Gmail & Outlook on PC: Easy Steps Included</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-the-pioneer-bdr-xs06-external-blu-ray-burner-a-focus-on-mobility-and-efficiency/"><u>Comprehensive Analysis of the Pioneer BDR-XS06 External Blu-Ray Burner: A Focus on Mobility & Efficiency</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-anker-30-speedy-hub-evaluation-unleash-your-devices-full-potential/"><u>Comprehensive Anker 3.0 Speedy Hub Evaluation: Unleash Your Device's Full Potential</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-innovative-amazon-halo-your-unconventebly-intimate-guide-to-fitness-and-vitality-enhancement/"><u>Discover the Innovative Amazon Halo – Your Unconventebly Intimate Guide to Fitness and Vitality Enhancement</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-the-xbox-one-elite-series-2-controller-definitive-best-in-class-gaming-experience/"><u>Expert Insights on the Xbox One Elite Series 2 Controller: Definitive Best-In-Class Gaming Experience</u></a></li>
+<li><a href="https://fox-access.techidaily.com/gaming-harmonies-archive-legal-free-to-access/"><u>Gaming Harmonies Archive Legal, Free to Access</u></a></li>
+<li><a href="https://win-dash.techidaily.com/high-tensile-strength-does-not-guarantee-high-toughness-materials-can-be-brittle-yet-strong/"><u>High Tensile Strength Does Not Guarantee High Toughness; Materials Can Be Brittle yet Strong.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/immersed-tube-tunnel-construction-is-used-for-underwater-crossings-and-involves-precise-placement-and-joining-of-prefabricated-sections/"><u>Immersed Tube Tunnel Construction Is Used for Underwater Crossings and Involves Precise Placement and Joining of Prefabricated Sections</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/logo-genius-10-tips-for-memorable-podcast-imagery/"><u>Logo Genius 10 Tips for Memorable Podcast Imagery</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-consumers-choice-of-optical-drive-units-top-selections/"><u>The Consumer's Choice of Optical Drive Units - Top Selections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-newly-reviewed-kobo-forma-where-reading-is-not-just-leisure-but-a-priority/"><u>The Ultimate Guide to the Newly Reviewed Kobo Forma – Where Reading Is Not Just Leisure, But a Priority</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-the-positives-and-negatives-of-implementing-webex-in-your-business-communications/"><u>Understanding the Positives & Negatives of Implementing WebEx in Your Business Communications</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/unveiling-the-irony-microsofts-satirical-take-on-teams-a-hidden-reality-zdnet/"><u>Unveiling the Irony: Microsoft's Satirical Take on Teams - A Hidden Reality? | ZDNet</u></a></li>
 </ul></div>
 

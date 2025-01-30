@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Jaco SmartPro Digital Tire Inflator Evaluation - Your Ultimate Guide
-date: 2024-08-22T16:06:58.079Z
-updated: 2024-08-23T16:06:58.079Z
+date: 2025-01-23T18:10:07.754Z
+updated: 2025-01-30T06:00:56.990Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Jaco SmartPro Digital Tire Inflator Evaluation - Your Ultimate Guide
@@ -15,10 +15,11 @@ thumbnail: https://www.lifewire.com/thmb/o1okyGjx4BQeRIcTbf35W31RRAY=/400x300/fi
 
 ## 1byone Amplified Digital HDTV Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/pWXHOnFpWCs9EltKF9bRUP_y5aU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -40,14 +41,8 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## 1byone Amplified Digital HDTV Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
 
 Lifewire / Jonno Hill
@@ -78,8 +73,9 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Vanilla**
 
  The 1byone Digital Amplified Indoor Antenna uses a flat rectangular design similar to other powered indoor antennas on the market. The 13.25 x 9.25 inch antenna surface is roughly in line with most of the other products I looked at in this category, the only real difference being that the 1byone has a much more rigid surface.
@@ -87,8 +83,9 @@ Lifewire / Jonno Hill
  Being a powered antenna, the 1byone uses an external amplifier to boost the signal. This box contains a coaxial input attached via the included 16.5ft cable, and has a power input, which can be supplied by the TV itself if it can support USB power. Otherwise, 1byone includes a USB power adapter.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup: Fairly intuitive**
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas. Simply attach the 16.5ft coaxial cable to the external amplifier, connect the power to a USB power source, and then attach the coaxial cable from the amplifier to your TV.
@@ -102,8 +99,9 @@ Lifewire / Jonno Hill
  This should be more than suitable for most people living within a city in relatively close proximity to the source of the TV signal. As for those living further, your mileage may vary.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Range: Middle of the road**
 
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
@@ -128,6 +126,10 @@ Lifewire / Jonno Hill
 
  The 1byone Digital Amplified Indoor Antenna offers the best value out of all the indoor antennas that we tested. If you can get the performance you need from the 1byone, it’s the antenna to buy. I wouldn’t consider other options unless you’ve already ruled out this one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Amplified Digital HDTV Antenna
@@ -141,14 +143,11 @@ Lifewire / Jonno Hill
 * Indoor/Outdoor  Indoor
 * Warranty  One year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,4 +156,24 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-editors-expert-analysis-videdit-pro-a-2023-overview/"><u>[New] 2024 Approved Editor's Expert Analysis VidEdit Pro – A 2023 Overview</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-how-to-wipe-out-your-youtube-buffered-videos/"><u>2024 Approved How-To Wipe Out Your YouTube Buffered Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/advanced-screen-recording-suite-for-windows-and-macos/"><u>Advanced Screen Recording Suite for Windows & macOS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-phones-range-with-the-top-signal-strengtheners-on-the-market/"><u>Boost Your Phone's Range with the Top Signal Strengtheners on the Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bright-ideas-in-the-dark-in-depth-analysis-of-the-nook-glowlight-3-from-barnes-and-noble/"><u>Bright Ideas in the Dark: In-Depth Analysis of the Nook GlowLight 3 From Barnes & Noble</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-new-ways-to-boost-your-nes-classic-console-game-selection/"><u>Discover New Ways to Boost Your NES Classic Console Game Selection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-high-definition-with-the-cost-effective-hisense-50h8f-4k-tv-in-depth-analysis/"><u>Experience High Definition with the Cost-Effective Hisense 50H8F 4K TV: In-Depth Analysis</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-techniques-for-navigating-popular-and-trending-youtube-reactions-for-2024/"><u>Expert Techniques for Navigating Popular and Trending YouTube Reactions for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/highpoint-design-suite-examination/"><u>Highpoint Design Suite Examination</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-apple-iphone-13-mini-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the Apple iPhone 13 mini Without Previous Owner?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-leveraging-yt-playlist-features-for-site-enhancement/"><u>In 2024, Leveraging YT Playlist Features for Site Enhancement</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iseebell-and-more-uncovering-high-quality-video-door-entry-systems-for-less-than-half-a-hundred-dollars/"><u>ISeeBell and More! Uncovering High-Quality Video Door Entry Systems for Less than Half a Hundred Dollars</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-definitive-guide-to-using-vlc-player-in-macos-for-2024/"><u>The Definitive Guide to Using VLC Player in macOS for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-using-the-amazon-fire-hd-10-ideal-for-family-movie-nights-and-more/"><u>The Ultimate Guide to Using the Amazon Fire HD 10, Ideal for Family Movie Nights and More</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-lenovo-tab-4-a-cost-effective-android-tablet-with-trade-offs-explored/"><u>The Verdict on Lenovo Tab 4: A Cost-Effective Android Tablet with Trade-Offs Explored</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-titles-towns-winners-worlds/"><u>Top Titles Towns: Winner's Worlds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-in-depth-xp-pen-artist-16-pro-graphics-tablet-assessment/"><u>Ultimate Guide: In-Depth XP-Pen Artist 16 Pro Graphics Tablet Assessment</u></a></li>
+</ul></div>
 

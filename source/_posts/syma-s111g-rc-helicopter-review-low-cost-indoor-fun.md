@@ -1,7 +1,7 @@
 ---
 title: "Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
-date: 2025-01-18T16:35:14.108Z
-updated: 2025-01-22T16:06:54.819Z
+date: 2025-01-23T23:22:49.568Z
+updated: 2025-01-30T02:24:17.083Z
 categories:
   - BestProducts
 description: "This Article Describes Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Microsoft Sculpt Ergonomic Keyboard
 
@@ -50,6 +46,10 @@ Lifewire / Emily Isaacs
 
 4.4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
@@ -75,7 +75,7 @@ Lifewire / Emily Isaacs
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Made for comfort**
@@ -85,7 +85,7 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -96,15 +96,15 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -123,10 +123,6 @@ Lifewire / Emily Isaacs
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -153,6 +149,10 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,17 +184,16 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-climb-the-popularity-ladder-essential-youtube-seo-practices-uncovered/"><u>[New] 2024 Approved Climb the Popularity Ladder Essential YouTube SEO Practices Uncovered</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-step-by-step-guide-to-optimal-screen-casting-via-meet/"><u>[New] Step-by-Step Guide to Optimal Screen Casting via Meet</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-nokia-c12-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Nokia C12 | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/brother-hl-l2easy-detailed-review-the-perfect-mfp-solution-for-growing-companies/"><u>Brother HL-L2easy Detailed Review - The Perfect MFP Solution for Growing Companies</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/elevate-your-virtual-meetings-mastering-zoom-filter-tech-for-2024/"><u>Elevate Your Virtual Meetings Mastering Zoom Filter Tech for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/examining-the-google-pixel-5s-unique-position-affordable-performance-meets-high-end-perks/"><u>Examining the Google Pixel 5'S Unique Position: Affordable Performance Meets High-End Perks</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-iphone-7-plus-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On iPhone 7 Plus</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-a-new-iphone-on-the-horizon-gauge-compatibility-now/"><u>Is a New iPhone on the Horizon? Gauge Compatibility Now</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-alert-caixuns-stunningly-affordable-4k-android-tv-the-best-bang-for-your-buck/"><u>Review Alert: Caixun’s Stunningly Affordable 4K Android TV - The Best Bang for Your Buck!</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/steps-to-spot-fake-bingpt-coins-immediately/"><u>Steps to Spot Fake BinGPT Coins Immediately</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/studiolightkit-lx93-cost-friendly-illumination/"><u>StudioLightkit LX93 - Cost-Friendly Illumination</u></a></li>
-<li><a href="https://some-tips.techidaily.com/unveiling-amazons-new-product-rating-overhaul-less-improved-than-expected/"><u>Unveiling Amazon's New Product Rating Overhaul – Less Improved than Expected</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-ultimate-hd-screensnap-equipment/"><u>[Updated] 2024 Approved Ultimate HD Screensnap Equipment</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-rapid-growth-tactics-hit-and-maintain-a-stellar-10000-views-mark/"><u>[Updated] In 2024, Rapid Growth Tactics Hit and Maintain a Stellar 10,000 Views Mark</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-huawei-p20-pro-top-tier-camera-performance-in-a-well-crafted-mobile-device/"><u>Discovering the Huawei P20 Pro: Top-Tier Camera Performance in a Well-Crafted Mobile Device</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/easy-tutorial-for-adding-books-to-the-google-play-books-platform/"><u>Easy Tutorial for Adding Books to the Google Play Books Platform</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-advice-on-solving-d3derrnotavailable-error-with-ease/"><u>Expert Advice on Solving 'D3DERR_NOTAVAILABLE' Error with Ease</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-getting-started-how-to-organize-a-google-based-conference-call/"><u>In 2024, Getting Started How to Organize a Google-Based Conference Call</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-playstation-xbox-meet-their-match-in-the-steam-deck/"><u>Is PlayStation, Xbox Meet Their Match in the Steam Deck?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-googles-pixel-5-a-budget-friendly-alternative-to-high-end-phones/"><u>Review of Google's Pixel 5: A Budget-Friendly Alternative to High-End Phones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-cable-modem-models-for-2e24-a-comprehensive-guide/"><u>Top-Rated Cable Modem Models for 2E24: A Comprehensive Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-solving-non-functional-microphone-issues-on-the-steelseries-arctis-7/"><u>Troubleshooting Tips: Solving Non-Functional Microphone Issues on the SteelSeries Arctis 7</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleash-computing-potential-with-the-raspberry-pi-400-a-revolutionary-keyboard-pc-reviewed/"><u>Unleash Computing Potential with the Raspberry Pi 400 - A Revolutionary Keyboard PC Reviewed</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Near-Perfect Flight Experience: The Detailed Breakdown of the DJI Phantom Pro V2"
-date: 2025-01-18T17:40:05.291Z
-updated: 2025-01-22T17:50:53.638Z
+date: 2025-01-29T06:39:22.533Z
+updated: 2025-01-29T16:42:22.678Z
 categories:
   - BestProducts
 description: "This Article Describes Near-Perfect Flight Experience: The Detailed Breakdown of the DJI Phantom Pro V2"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/8ab6ea565c08148258cccefd3c4e69bde02c4b3db
 ## Netgear C3700 Cable Modem Router
 
 ![Netgear C3700](https://www.lifewire.com/thmb/HeiIUMzNfcdABm8uXby7X0Qo3dE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-5-1-668cca140a8e4c1ba59c13f4f2a8d8ec.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
 
@@ -42,13 +46,13 @@ Lifewire / Bill Thomas
 
 3.4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netgear C3700 Cable Modem Router
 
 ![Netgear C3700](https://www.lifewire.com/thmb/CWSAqFXf9klr-Fs5mU-YkCpwF9Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-5-1-668cca140a8e4c1ba59c13f4f2a8d8ec.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
 
@@ -74,6 +78,10 @@ Lifewire / Bill Thomas
 
  We got our hands on the Netgear C3700 for testing and put it through the wringer to see whether or not it’s worth your cash, and what kind of performance you can expect.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Small and inconspicuous
 
  With a device that packs[both a cable modem and a wireless router](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541) , you might expect the Netgear C3700 to be a bulky device, but that’s not the case. It’s actually quite small, measuring just 7.6 inches high and weighing a scant 0.77 pounds. This, combined with the low-key black finish and lack of external antennas means that it won’t stick out, no matter where you put it.
@@ -81,10 +89,6 @@ Lifewire / Bill Thomas
  This definitely works in the Netgear C3700’s favor. The[wireless performance](https://www.lifewire.com/ways-to-boost-a-wifi-signal-818296) is already weak (which we’ll go into a bit later), so the fact that you can leave it out and unobscured is a benefit.
 
 ![Netgear C3700](https://www.lifewire.com/thmb/kBtdcSRxoIsQvqmnO6OVYnfZ9z8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-4-ad3408c39a524e14a6cebcce10d3be44.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
@@ -114,6 +118,10 @@ Lifewire / Bill Thomas
 
  There is also a USB 2.0 port around the back where you can plug in a hard drive or a printer for network access.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Network Performance: Great when wired, but wireless speeds lag
 
  We didn’t exactly have high hopes for the C3700 and its N600 wireless rating. At its peak during testing, we reached wireless speeds of 130Mbps, but that didn’t last—with multiple devices connected and in use, we were seeing speeds as low as 40Mbps just a few feet away from the router.
@@ -125,14 +133,10 @@ Lifewire / Bill Thomas
 ![Netgear C3700](https://www.lifewire.com/thmb/lPF7EXzNUljkXFySwthTmhwRbiY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-6-1c4a748dd9b644c39d8bd8c47180c74f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Software: No frills
 
@@ -160,17 +164,13 @@ Lifewire / Bill Thomas
  The cable modem’s performance is great, but the wireless performance is just not there. If all you want is the cheapest possible modem with built-in dual-band Wi-Fi, then the Netgear C3700 checks those boxes. But we think you’re better off spending more for better performance or just buying two standalone devices.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -207,16 +207,20 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-hobbyist-to-pro-optimal-cameras-for-youtubing/"><u>[New] In 2024, From Hobbyist to Pro Optimal Cameras For YouTubing</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-bring-imagination-to-life-self-animated-artistry-for-2024/"><u>[Updated] Bring Imagination to Life Self-Animated Artistry for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-guiding-through-graphic-image-alteration/"><u>2024 Approved Guiding Through Graphic Image Alteration</u></a></li>
-<li><a href="https://techidaily.com/cookiebot-driven-data-collection-enhancing-your-sites-visitor-insights/"><u>Cookiebot-Driven Data Collection: Enhancing Your Site's Visitor Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/critical-take-on-the-lg-k51-beautiful-design-compromised-by-a-leisurely-processor/"><u>Critical Take on the LG K51: Beautiful Design Compromised by a Leisurely Processor</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-the-acer-xfa240-strikes-a-balance-between-form-and-functionality/"><u>How The Acer XFA240 Strikes a Balance Between Form and Functionality</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-honor-x8b-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Honor X8b Device SIM</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mandatory-review-alert-dive-into-yakuza-like-a-dragon-the-essential-rpg-gem/"><u>Mandatory Review Alert: Dive Into Yakuza - Like A Dragon, The Essential RPG Gem</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-itel-p40plus-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Itel P40+ Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-contender-in-consoles-unveiling-the-powerhouse-that-is-xbox-one-x/"><u>The Ultimate Contender in Consoles: Unveiling the Powerhouse That Is Xbox One X</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-peace-of-mind-a-users-journey-through-the-features-of-arlo-home-surveillance-solutions/"><u>Unlocking Peace of Mind: A User's Journey Through the Features of Arlo Home Surveillance Solutions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-optimize-tv-viewership-via-facebook-live-streaming/"><u>[New] 2024 Approved Optimize TV Viewership via Facebook Live Streaming</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-reversing-time-retracing-your-steps-for-lost-snaps-for-2024/"><u>[New] Reversing Time Retracing Your Steps for Lost Snaps for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-elite-virtual-classrooms-finding-value-outside-udemys-ecosystem-for-2024/"><u>[Updated] Elite Virtual Classrooms Finding Value Outside Udemy's Ecosystem for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-maximize-productivity-on-mac-top-free-tts-app-picks-you-need-for-2024/"><u>[Updated] Maximize Productivity on Mac TOP Free TTS App Picks You Need for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-6-hdmi-21-screens-detailed-feature-rundown/"><u>[Updated] Top 6 HDMI 2.1 Screens Detailed Feature Rundown</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-taping-permissibility-concerns/"><u>2024 Approved YouTube Taping Permissibility Concerns</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/capturing-your-mi-11-screens-step-by-step/"><u>Capturing Your Mi 11 Screens - Step by Step</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-value-in-linkedin-plus-features/"><u>Discovering Value in LinkedIn Plus Features</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-car-audio-with-bluetooth-a-comprehensive-review-of-the-lihan-lhfm1039-transmitter/"><u>Enhance Car Audio with Bluetooth: A Comprehensive Review of the LIHAN LHFM1039 Transmitter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-best-of-both-worlds-with-acer-aspire-c27-low-profile-and-full-featured-all-in-one-pc/"><u>Experience the Best of Both Worlds with Acer Aspire C27: Low Profile & Full Featured All-in-One PC</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insignias-budget-friendly-fire-tv-ultra-hd-alexa-integration-unveiled-in-our-comprehensive-review/"><u>Insignia's Budget-Friendly Fire TV: Ultra HD, Alexa Integration Unveiled in Our Comprehensive Review!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lenovos-masterpiece-reviewed-the-thinkpad-x12-detachable-unites-excellence-in-keyboard-ease-with-versatile-2-in-1-usage/"><u>Lenovo's Masterpiece Reviewed - The ThinkPad X1^2 Detachable Unites Excellence in Keyboard Ease with Versatile 2-in-1 Usage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lg-k92-5g-smartphone-assessment-is-the-upgrade-truly-essential/"><u>LG K92 5G Smartphone Assessment: Is the Upgrade Truly Essential?</u></a></li>
 </ul></div>
 

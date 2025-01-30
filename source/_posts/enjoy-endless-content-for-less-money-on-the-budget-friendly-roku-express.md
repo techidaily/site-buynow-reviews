@@ -1,7 +1,7 @@
 ---
 title: Enjoy Endless Content for Less Money on the Budget-Friendly Roku Express
-date: 2024-08-15T09:30:30.083Z
-updated: 2024-08-16T09:30:30.083Z
+date: 2025-01-27T05:46:15.162Z
+updated: 2025-01-30T05:02:38.468Z
 categories:
   - BestProducts
 description: This Article Describes Enjoy Endless Content for Less Money on the Budget-Friendly Roku Express
@@ -15,10 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/YQFOK9y5bChN-wmK4RMXpQ4T6bU=/400x300/fi
 
 ## Mobvoi TicWatch E2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Mobvoi TicWatch E2](https://www.lifewire.com/thmb/-dRjCnwIPDxbCDgfGwje3jmPIVc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4048042_HeroSquare-7e25ae1c0a8f461dbfc03047ae303254.jpg)
 
  Lifewire / Andrew Hayward
@@ -45,9 +41,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ## Mobvoi TicWatch E2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Mobvoi TicWatch E2](https://www.lifewire.com/thmb/m6uN8BF7na_BgK7uG5tlTXJUVGE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4048042_HeroSquare-7e25ae1c0a8f461dbfc03047ae303254.jpg)
 
  Lifewire / Andrew Hayward
@@ -74,12 +67,17 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Mobvoi's TicWatch E2 definitely falls into the latter category in that last comparison. Built primarily of black plastic and not packing much panache, this workmanlike Wear OS watch is meant to be a low-priced alternative to much more expensive smartwatches. But a number of recurring issues make this a difficult watch to recommend, even at that eye-catching price.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mobvoi TicWatch E2](https://www.lifewire.com/thmb/c84siDEZj_DPwzJOMzSncx_5Cb8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4048042_03-843bcf3ec9ce49b090f754fd435eba9c-26876cbe9ff4459dac734a2c38c35e62.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design and Comfort: Nondescript, but the screen is great**
 
@@ -91,19 +89,17 @@ Lifewire / Andrew Hayward
 
  The case only has one physical button, on the right side of the case—pressing it quickly brings up the scrolling list of apps, while a sustained press pulls up the Google Assistant. The TicWatch E2 comes with a black silicone 22mm sport band, which you can swap out with other bands of the same size if you please. Despite its large size, the watch itself is incredibly lightweight, so it doesn't feel heavy on the wrist at all.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: No hassle at all**
 
  Setting up the TicWatch E2, like any recent Wear OS watch, is a straightforward process. Simply download the Wear OS app on your Android phone or iPhone and follow the steps within, which include pairing the watch, considering some settings, and ultimately getting up and running. It shouldn't take more than a few minutes in total.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mobvoi TicWatch E2](https://www.lifewire.com/thmb/t4sUe11h-gHM3ay_lmy4BHeuPcM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4048042_04-850d439e303b49fda5c69c166f5035de.jpg)
 
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Sometimes fine, sometimes not**
 
@@ -117,6 +113,10 @@ Lifewire / Andrew Hayward
 
  Frustratingly, the phone also lost its connection to our phone (the Samsung Galaxy S10) on a semi-regular basis. We would try to access the Google Assistant and get an error message at times, as it couldn't connect to Google, or get a chunk of late-arriving notifications after the watch reconnected.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery: Solid uptime, but watch out for charging hitches**
 
  Mobvoi advertises 48-hour battery life, but that needs an asterisk next to it: you'll only come close to that mark if the always-on screen is disabled and you're not heavily using the GPS for fitness tracking. The always-on screen saps a fair bit of battery life, and you probably won't get deep into a second day on a single charge. With modest usage and the screen off when you're not looking at it, however, you should safely be able to skip the charger every other night.
@@ -125,16 +125,10 @@ Lifewire / Andrew Hayward
 
  We found this out the hard way, as our TicWatch E2 wouldn't pull any power from the cable in the days following our initial charge. We ordered a replacement watch and quickly experienced the same issue again. Ultimately, we realized that a less-powerful 5W charger—like the tiny charging blocks that ship with iPhones—was needed, and our third charging cable ultimately did the trick. That's a bit ridiculous, however, and Mobvoi could've avoided the problem altogether by just tossing a small power brick into the box.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![Mobvoi TicWatch E2](https://www.lifewire.com/thmb/qqjgkoPMGLDcHiZ42FTOqRzF8qk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4048042_02-53f95b3090b84e4f8d439ed6e82d9adf.jpg)
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Software and Key Features: The budget feature set**
 
  The TicWatch E2 currently runs Wear OS 2.6, which is the latest version, and Google's smartwatch interface has gradually gotten smoother and more useful over the years. It's not as eye-catching or intuitive as Apple's watchOS 5, but the E2's included watch faces look nice and there are many more available to download from the Play Store, not to mention a solid array of wearable apps.
@@ -148,8 +142,9 @@ Lifewire / Andrew Hayward
  One odd note is that it automatically tracked a couple of phantom runs during our everyday usage, which was perplexing. Maybe we were walking a little faster than usual for a moment, but that shouldn't have triggered a tracking session. It was never an issue with other smartwatches we've used.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: It's cheap, but with issues**
 
  Wear OS watches vary widely in price, ranging up to several hundred dollars for fashion-centric or ruggedized models, but the TicWatch E2 is definitely one of the cheapest at $160\. It's also cheaper than the Fitbit Versa ($180) and quite a bit less than the Samsung Galaxy Watch ($330 plus) and Apple Watch Series 4 ($399 plus).
@@ -174,6 +169,10 @@ Lifewire / Andrew Hayward
 
  The Ticwatch E2 runs fluidly some of the time, the screen looks great, and the no-nonsense design is totally solid. It also works well as a fitness tracker, when you want it to. However, it frequently got bogged down during our testing, turning the simple act of bringing up apps or triggering the Google Assistant into an exercise in frustration. Add in the semi-regular disconnects from our phone and the charger debacle, and it just isn’t worth the price. Put your money towards a smartwatch that doesn't feel so compromised.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Samsung Galaxy Fit](https://www.lifewire.com/samsung-galaxy-fit-review-4766867)
@@ -195,14 +194,11 @@ Lifewire / Andrew Hayward
 * Storage  4GB
 * Waterproof  5ATM
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -211,4 +207,22 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expert-advice-on-selecting-the-best-lenses-for-filmmaking/"><u>[Updated] Expert Advice on Selecting The Best Lenses For Filmmaking</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-branding-edge-design-strategies-for-game-changing-banners-for-2024/"><u>[Updated] The Branding Edge Design Strategies for Game-Changing Banners for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-precise-procedure-for-fusing-gopro-footage-into-comprehensive-video-spheres/"><u>2024 Approved Precise Procedure for Fusing GoPro Footage Into Comprehensive Video Spheres</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-portable-the-dichotomy-of-nikons-speedlight/"><u>Compact, Portable: The Dichotomy of Nikon's Speedlight</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/design-your-own-fake-faces-with-these-free-online-generators-for-2024/"><u>Design Your Own Fake Faces with These Free Online Generators for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-power-of-the-new-imac-a-detailed-analysis-of-its-beautiful-upgrades-and-game-changing-m1-chip/"><u>Experience the Power of the New iMac: A Detailed Analysis of Its Beautiful Upgrades and Game-Changing M1 Chip</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-stadia-assessment-identifying-key-growth-zones/"><u>Google Stadia Assessment: Identifying Key Growth Zones</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-motorola-mg7700-a-fast-and-dependable-phone/"><u>In-Depth Analysis of the Motorola MG7700: A Fast and Dependable Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kensuns-compact-and-durable-tire-inflator-an-expert-product-evaluation/"><u>Kensun's Compact & Durable Tire Inflator - An Expert Product Evaluation</u></a></li>
+<li><a href="https://win-blog.techidaily.com/quick-tips-resolving-persistent-crashes-in-outriders/"><u>Quick Tips: Resolving Persistent Crashes in Outriders</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/reverting-bios-back-to-basics-a-complete-tutorial-on-clearing-the-motherboardcumemory-storage/"><u>Reverting BIOS Back to Basics: A Complete Tutorial on Clearing the Motherboard'cu Memory Storage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-on-the-go-charging-with-our-expert-take-on-zmis-20k-watt-power-pack/"><u>Revolutionize Your On-the-Go Charging with Our Expert Take on ZMI's 20K Watt Power Pack</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-xiaomi-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Xiaomi? Tips, Tricks and Helpful Advice</u></a></li>
+</ul></div>
 

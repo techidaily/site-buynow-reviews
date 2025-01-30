@@ -1,7 +1,7 @@
 ---
 title: In Rectangular Channels, A Is Width Times Depth and P Is the Sum of All Sides in Contact with Water.
-date: 2025-01-18T16:50:39.079Z
-updated: 2025-01-22T19:10:28.098Z
+date: 2025-01-25T21:00:58.002Z
+updated: 2025-01-30T03:09:58.002Z
 categories:
   - BestProducts
 description: This Article Describes In Rectangular Channels, A Is Width Times Depth and P Is the Sum of All Sides in Contact with Water.
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/bptkPuLZHhXM0lJcBFRMHvXtAhQ=/400x300/fi
 ## Raspberry Pi 400
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Gmg1bX1GHP4gGx2wCClYDURkzKI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -50,6 +46,10 @@ Erika Rawes / Lifewire
 [View On Amazon $160](https://www.amazon.com/dp/B08RN62ZG3?tag=lifewire-onsite-prod-20&ascsubtag=5113128%7Cn5dea767cc9f34467931c02c7ed3801cc22%7CB08RN62ZG3)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Raspberry Pi 400
 
@@ -103,6 +103,10 @@ Erika Rawes / Lifewire
 
  On the back of the Pi 400, you’ll find a slot for the microSD card, as well as all of the ports. It has two micro HDMI slots, three USB slots (two 3.0 and one 2.0), a horizontal 40-pin GPIO header, and the port for the power supply. The power button is on the keyboard itself—press F10 to power on the Pi, and press Fn + F10 to power it off.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Setup Process: Easier than previous Pi models
 
  The Raspberry Pi 400 is still...well, a[Raspberry Pi](https://www.lifewire.com/raspberry-pi-4102621) . It isn’t a traditional PC in the sense that it doesn’t have full capabilities like a typical laptop,[desktop computer](https://www.lifewire.com/best-desktop-pcs-4045927) , or even mini computer. The Pi is just a computer—it doesn’t even have an operating system unless you add one (fortunately, this Pi includes the OS with the kit). Even when you add the OS, the Pi has a relatively barebones interface. The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
@@ -112,7 +116,7 @@ Erika Rawes / Lifewire
  The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Projects: Keyboard helps in some ways, hinders in others
@@ -134,7 +138,7 @@ Erika Rawes / Lifewire
  The Raspberry Pi 400 doesn’t have a DSI port for connecting a capacitive touchscreen display, but you can connect just about any compatible HDMI monitor as long as you use a micro HDMI to[HDMI cable](https://www.lifewire.com/hdmi-cables-and-connectors-what-you-need-to-know-4685377) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Performance: Not bad for the size
@@ -144,10 +148,6 @@ Erika Rawes / Lifewire
  Because this is a Pi, running benchmarks was a bit of a pain because the OS is small and open-source, so it isn’t ready to run benchmarking tools on a whim. I was able to install Phoronix Test Suite and run a few benchmark tests, including C-Ray 1.1 and a few others. On C-Ray, it earned a moderate score of 561.26\. When idle, the Pi ran at a temperature of around 34 degrees Celsius. It has good thermal architecture, with a heatsink inside the keyboard to keep the system cool.
 
  The PC-in-a-keyboard design makes the Pi 400 Kit less like a computer you have to build, and more like a PC you can start using right out of the box.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Gaming: Minecraft Pi, RetroPie, and more
 
@@ -161,11 +161,19 @@ Erika Rawes / Lifewire
 
  The accessories tab includes a PDF viewer and a calculator, as well as a text editor and an SD card copier. You also have a basic web browser—plenty of tools to get you started.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Audio: Bluetooth connectivity
 
  You won’t find built-in speakers, but the Pi 400 will play audio on your monitor’s speakers when you use the HDMI to mini HDMI cable included in the kit. It also has Bluetooth for connecting a pair of wireless headphones. I had no problem connecting a few different types of Bluetooth headphones to the Pi. There’s no audio output jack, but you can connect compatible USB speakers if you launch the appropriate USB commands in the terminal.
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/vAb_0QFg4Uze6uuiSMlTPtkw_CA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-5-b326f92abc1a4349910f0b7b5d0e2d53.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -174,10 +182,6 @@ Erika Rawes / Lifewire
  The Pi 400 has dual-band Wi-Fi, so you can connect it to a 2.4GHz or 5GHz network. It also has Bluetooth, as well as a[Gigabit Ethernet port](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) for wired connectivity.
 
  Here at my home in the Research Triangle in North Carolina, my Wi-Fi speeds max out at 400Mbps. I was able to get respectable speeds on this mini PC, with around 100Mbps upload and 30Mbps download. I did not attempt a hardwired connection.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Camera: No CSI port, but you can use a USB webcam
 
@@ -200,7 +204,7 @@ Erika Rawes / Lifewire
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/sgM6gDaZx8bgvwHPPRkrZjgH9oA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-4-c9378702644a4e77b8a5e58985d72993.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
@@ -218,10 +222,6 @@ Erika Rawes / Lifewire
 **Practical, versatile, and affordable.**
 
  Unlike previous Raspberry Pis that are for more advanced users, the Pi 400 kit is designed for everyone. Whether you want to learn programming, create a gaming system, create a streaming system, or get into 3D modeling, the Pi 400 is a good starting point.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -253,20 +253,18 @@ Erika Rawes / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-discover-youtubes-frame-advantage-five-free-tools-for-2024/"><u>[New] Discover YouTube's Frame Advantage - Five Free Tools for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-secrets-of-seamlessly-sharing-in-tiktok-livestreams/"><u>[New] Secrets of Seamlessly Sharing in TikTok Livestreams</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-navigate-effortlessly-how-to-clear-your-browsers-youtube-cache-for-2024/"><u>[Updated] Navigate Effortlessly How to Clear Your Browser's YouTube Cache for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-affordable-fitbit-versa-lite-excellent-health-tracking-on-budget/"><u>Comprehensive Review of the Affordable Fitbit Versa Lite - Excellent Health Tracking on Budget</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/critical-points-deciding-on-a-refurbished-pc/"><u>Critical Points: Deciding on a Refurbished PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-enhanced-network-performance-with-the-extollo-lansocket-1500-fast-efficient-and-power-enabling-designs-examined/"><u>Experience Enhanced Network Performance with the Extollo LANSocket 1500 - Fast, Efficient & Power-Enabling Designs Examined</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/get-a-sharp-picture-the-budget-friendly-kodak-fz53-review/"><u>Get a Sharp Picture: The Budget-Friendly Kodak FZ53 Review</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-move-custom-ringtones-from-apple-iphone-15-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Move Custom Ringtones from Apple iPhone 15 to Android? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/instant-mirth-mastery-your-shortcut-to-ifunny-memes-for-2024/"><u>Instant Mirth Mastery Your Shortcut to iFunny Memes for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-the-coredll-file-not-found-a-step-by-step-guide/"><u>Resolving the 'Core.DLL' File Not Found: A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-blog.techidaily.com/stop-game-crashes-with-these-confirmed-remedies-for-helldivers-ve-pc/"><u>Stop Game Crashes with These Confirmed Remedies for Helldivers Ve PC</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-repairing-your-arctis-9x-mic-fixed/"><u>Troubleshooting and Repairing Your Arctis 9X Mic - Fixed!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-review-best-ups-battery-backups-on-the-market/"><u>Ultimate Review: Best UPS Battery Backups on the Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleash-your-potential-with-cubefits-revolutionary-terramat-a-thorough-user-analysis/"><u>Unleash Your Potential with CubeFit's Revolutionary TerraMat - A Thorough User Analysis</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-disrupting-tradition-the-emerging-fb-ad-practices/"><u>[New] 2024 Approved Disrupting Tradition The Emerging FB Ad Practices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-in-game-sound-transformation-the-no-cost-pathway-in-free-fire/"><u>[New] In-Game Sound Transformation The No-Cost Pathway in Free Fire</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-essential-guide-to-top-12-free-and-paid-gaming-introduction-creators/"><u>[Updated] 2024 Approved Essential Guide to Top 12 Free and Paid Gaming Introduction Creators</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/aimp-pro-541-wmsps-advanced-desktop-companion/"><u>AIMP Pro 5.41 WMSP's Advanced Desktop Companion</u></a></li>
+<li><a href="https://extra-information.techidaily.com/comparative-review-dji-phantom-3-vs-competitors/"><u>Comparative Review DJI Phantom 3 vs Competitors</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-google-pixel-7a-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Google Pixel 7a? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/intel-imac-enhancements-the-ultimate-users-guide/"><u>Intel iMac Enhancements: The Ultimate User's Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/quick-share-your-youtube-playlist-journey/"><u>Quick Share Your YouTube Playlist Journey</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-the-lenovo-ideapad-laptop-range-exploring-design-meets-usability/"><u>The Essential Guide to the Lenovo IdeaPad Laptop Range: Exploring Design Meets Usability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-e-readers-battle-which-is-superior-the-ipad-amazon-kindle-or-the-barnes-and-noble-nook/"><u>Top E-Readers Battle: Which Is Superior - The iPad, Amazon Kindle, or the Barnes & Noble Nook?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-reviews-of-wireless-mesh-routers-for-optimal-home-or-office-connectivity-featuring-google-wifi/"><u>Top Reviews of Wireless Mesh Routers for Optimal Home or Office Connectivity - Featuring Google WiFi</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-m-mock-1000a-car-jumper-pack-the-18000mah-powerhouse-unveiled/"><u>Ultimate Guide to the M Mock 1000A Car Jumper Pack - The 18,000mAh Powerhouse Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-of-the-radpower-radcity-5plus-bike-a-mixed-bag-of-potency-and-portability/"><u>Unveiling the Features of the RadPower RadCity 5+ Bike: A Mixed Bag of Potency & Portability</u></a></li>
 </ul></div>
 

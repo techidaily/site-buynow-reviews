@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Dell G5 5090 Gaming Rig Assessment - Exceptional Value and Versatility
-date: 2025-01-16T19:23:56.616Z
-updated: 2025-01-22T17:58:01.014Z
+date: 2025-01-28T17:07:04.065Z
+updated: 2025-01-29T18:25:23.211Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Dell G5 5090 Gaming Rig Assessment - Exceptional Value and Versatility
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/4i3fdmdcd1swkbkMP9bxOi3Nexc=/400x300/fi
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -45,6 +49,10 @@ Lifewire / Erika Rawes
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -78,14 +86,10 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -94,6 +98,10 @@ Lifewire / Erika Rawes
  Once you connect the antenna’s cable to your TV, you’ll need to find the best placement. This is perhaps the most difficult part of the setup process. My test home is in a wooded area, and I found the best placement was near or directly on the window. However,[to improve your antenna’s reception](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) , it’s usually a good idea to place the antenna high up in a room close to the home’s exterior (and nearest to the transmitter towers) and to avoid obstacles like walls and tree cover.
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
 
@@ -104,7 +112,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -123,15 +131,7 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -174,24 +174,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/-filmmakers-essential-guide-to-free-royalty-free-audiosites-for-2024/"><u>[New] A Filmmaker's Essential Guide to Free Royalty-Free Audiosites for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-mastering-multitasking-running-conversations-and-screenshots-for-2024/"><u>[New] Mastering Multitasking Running Conversations & Screenshots for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-craft-unforgettable-experiences-for-more-subscribers-with-these-6-tips/"><u>[Updated] 2024 Approved Craft Unforgettable Experiences for More Subscribers with These 6 Tips</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-a-visionary-leap-to-4k-the-eizo-coloredge-monitor-review/"><u>[Updated] A Visionary Leap to 4K The EIZO ColorEdge Monitor Review</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-audiophiles-choice-selecting-superior-oculus-devices/"><u>[Updated] Audiophiles' Choice Selecting Superior Oculus Devices</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-from-ground-to-sky-the-lifting-elite-drone-list/"><u>[Updated] From Ground to Sky The Lifting Elite Drone List</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-the-social-media-puzzle-decoding-ig-data-for-enhanced-campaigns-for-2024/"><u>[Updated] Mastering the Social Media Puzzle Decoding IG Data for Enhanced Campaigns for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-google-maps-app-on-ios-devices/"><u>Comprehensive Evaluation of Google Maps App on iOS Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/driving-smart-with-sound-the-economical-truckers-wireless-earpiece-guide/"><u>Driving Smart with Sound: The Economical Truckers' Wireless Earpiece Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/enabling-controlled-access-a-step-by-step-for-windows-10-and-11/"><u>Enabling Controlled Access: A Step-by-Step for Windows 10 & 11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/future-proof-your-home-network-with-these-premium-asus-routers/"><u>Future-Proof Your Home Network with These Premium ASUS Routers</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-archive-all-your-images-flawlessly-infinite-no-charge-and-elite-paid-storage/"><u>In 2024, Archive All Your Images Flawlessly Infinite, No-Charge & Elite Paid Storage</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-x-plane-11-review-a-cutting-edge-global-flight-experience-with-stunning-graphics/"><u>In-Depth X-Plane 11 Review: A Cutting-Edge Global Flight Experience with Stunning Graphics</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/instant-insight-into-once-lost-reddit-topics-for-2024/"><u>Instant Insight Into Once Lost Reddit Topics for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/j5-tactical-v1-pro-flashlight-assessment-unbeatable-durability-and-miniature-design/"><u>J5 Tactical V1-Pro Flashlight Assessment: Unbeatable Durability & Miniature Design</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/marvels-avengers-critique-striving-for-greatness-with-some-shortcomings/"><u>Marvel's Avengers Critique: Striving for Greatness with Some Shortcomings</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-skies-with-dji-mavic-2-pro-the-elite-choice-amongst-professionals/"><u>Mastering Skies with DJI Mavic 2 Pro - The Elite Choice Amongst Professionals</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-tech-savings-with-the-impressive-features-of-the-acer-aspire-e-15-review/"><u>Maximizing Tech Savings with the Impressive Features of the Acer Aspire E 15 Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stand-strong-and-steady-an-in-depth-evaluation-of-the-ergohead-anti-fatigue-mat-for-extended-use/"><u>Stand Strong and Steady: An In-Depth Evaluation of the Ergohead Anti-Fatigue Mat for Extended Use</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-12-best-free-video-players-and-apps-for-pc-and-mobile-device/"><u>[New] 12 Best Free Video Players and Apps for PC and Mobile Device</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-framework-for-high-quality-streaming-archiving/"><u>[New] 2024 Approved The Framework for High-Quality Streaming Archiving</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-integrate-titles-and-descriptions-into-your-youtube-video/"><u>[Updated] How to Integrate Titles and Descriptions Into Your YouTube Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-compreeve-youtube-extraction-11-tools-reviewed/"><u>[Updated] In 2024, Compreeve YouTube Extraction 11 Tools Reviewed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-snapchats-new-spotlight-functionality-for-2024/"><u>[Updated] Navigating Snapchat's New Spotlight Functionality for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-speaking-with-impact-in-google-meet-the-guidebook/"><u>2024 Approved Speaking with Impact in Google Meet The Guidebook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-wonder-workshops-dash-stem-robot-toy-learn-explore-roll/"><u>Comprehensive Review of the Wonder Workshop's Dash STEM Robot Toy - Learn, Explore, Roll!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-uninstall-built-in-iphone-apps-a-comprehensive-guide/"><u>How to Uninstall Built-In iPhone Apps: A Comprehensive Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-vivo-y100a-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Vivo Y100A Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-huawei-p30-pro-a-users-unwavering-affection/"><u>In-Depth Analysis of the Huawei P30 Pro: A User's Unwavering Affection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-examination-why-choose-fongo-for-canadian-business-communications/"><u>In-Depth Examination: Why Choose Fongo for Canadian Business Communications?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-it-time-to-upgrade-comparing-features-of-galaxy-s23-and-s21-ultra/"><u>Is It Time to Upgrade? Comparing Features of Galaxy S23 & S21 Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-car-secrecy-decipherers-of-next-year/"><u>Leading Car Secrecy Decipherers of Next Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/master-the-court-discover-nba-2k19-the-definitive-basketball-simulation/"><u>Master the Court - Discover NBA 2K19, The Definitive Basketball Simulation</u></a></li>
+<li><a href="https://extra-support.techidaily.com/stealth-mode-a-guide-to-living-large-unlabeled-for-2024/"><u>Stealth Mode A Guide to Living Large, Unlabeled for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-the-superior-samsung-galaxy-s10-a-smartphone-for-connoisseurs/"><u>The Definitive Guide to the Superior Samsung Galaxy S10 - A Smartphone for Connoisseurs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-seamless-connectivity-with-linksys-velop-a-review-of-its-superior-performance/"><u>Unlocking Seamless Connectivity with Linksys Velop - A Review of Its Superior Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerhouse-a-comprehensive-review-of-the-lightning-fast-netgear-nighthawk-rax120-router/"><u>Unveiling the Powerhouse - A Comprehensive Review of the Lightning-Fast Netgear Nighthawk RAX120 Router</u></a></li>
 </ul></div>
 

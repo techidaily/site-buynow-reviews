@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
-date: 2025-01-15T20:13:40.602Z
-updated: 2025-01-22T16:02:02.579Z
+date: 2025-01-26T01:30:48.419Z
+updated: 2025-01-29T17:52:45.517Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
@@ -77,7 +77,7 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -94,6 +94,10 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Network Performance: Fast speeds, No USB port**
@@ -105,13 +109,13 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
@@ -136,10 +140,6 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
  The Archer A9 is another affordable offering from TP-Link, with a price tag of under $100\. However, the A9 has a USB port and is compatible with Alexa and[IFTTT](https://www.lifewire.com/what-is-ifttt-4172417) —features the C80 lacks. I recently tested the A9 as well. The A9 offers more in the way of features, but I was able to get faster speeds and better coverage out of the C80\. If you want a router that offers a more comprehensive experience, go with the A9\. If you just want an affordable, speedy router that will maintain a signal at long range, you’ll probably be happy with the C80.
@@ -151,7 +151,7 @@ Lifewire / Erika Rawes
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -189,15 +189,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ntegrating-imovie-productions-into-youtube/"><u>[New] Integrating iMovie Productions Into YouTube</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-is-watching-facebook-on-the-television-set-a-future-possibility/"><u>[New] Is Watching Facebook on the Television Set a Future Possibility?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-exclusive-action-cam-colorization-top-15-luts-to-enhance-cinematography-for-2024/"><u>[Updated] Exclusive Action Cam Colorization Top 15 LUTs to Enhance Cinematography for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dissecting-bose-qc30s-pros-and-cons/"><u>Dissecting Bose QC30's Pros & Cons</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-overview-on-asus-zenwifi-xt8-ax6-6600-review-elevating-mesh-network-performance-at-home/"><u>Expert Overview on ASUS ZenWiFi XT8 AX6 6600 Review: Elevating Mesh Network Performance at Home</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-successfully-boot-up-your-stardew-valley-game-troubleshooting-steps/"><u>How to Successfully Boot Up Your Stardew Valley Game - Troubleshooting Steps</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-release-of-magicard-rio-pro-driver-for-windows-users-download-and-install/"><u>Latest Release of Magicard Rio Pro Driver for Windows Users: Download & Install</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/master-tutorial-how-to-quickly-setup-arduino-nano-with-the-right-windows-software/"><u>Master Tutorial: How To Quickly Setup Arduino Nano with the Right Windows Software</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sony-xbr65x850f-65-inch-4k-tv-quality-and-price-that-wont-break-the-bank/"><u>Sony XBR65X850F (65-Inch) 4K TV: Quality & Price That Won't Break The Bank</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-miniature-masterpiece-powershot-g7x-mark-ii-reviewed/"><u>The Miniature Masterpiece: PowerShot G7X Mark II Reviewed</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-top-10-must-have-terraria-extensions-for-2024/"><u>[New] Top 10 Must-Have Terraria Extensions for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-navigating-macos-to-optimize-mixer-streams-for-2024/"><u>[Updated] Navigating MacOS to Optimize Mixer Streams for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amd-shatters-records-the-epyc-prise-9755-epyc-cpu-surpasses-108000-in-multi-threading-performance-on-cpu-z/"><u>AMD Shatters Records: The Epyc Prise 9755 EPYC CPU Surpasses 108,000 in Multi-Threading Performance on CPU-Z</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/beat-surface-pros-erratic-display-expert-advice-on-resolving-flickers-and-quivers/"><u>Beat Surface Pro's Erratic Display: Expert Advice on Resolving Flickers and Quivers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-smart-doorbells-ring-vs-nest-which-one-wins/"><u>Comparing Smart Doorbells: Ring vs Nest – Which One Wins?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/cover-video-essentials-for-facebook-professionals-for-2024/"><u>Cover Video Essentials for Facebook Professionals for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/drive-your-passion-forward-exploring-auto-engineering-through-best-books-and-articles-on-vehicles-technologies-and-innovations-of-the-year-rev/"><u>Drive Your Passion Forward – Exploring Auto Engineering Through Best Books and Articles on Vehicles, Technologies & Innovations of the Year (Rev.)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-features-of-the-latest-ampasand-andes-1500-gotech-mobile-battery-pack/"><u>Explore the Features of the Latest Ampasand Andes 1500 GoTech Mobile Battery Pack</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-trade-off-between-design-and-function-in-the-netgear-powerline-ac1200/"><u>Exploring the Trade-Off Between Design and Function in the Netgear Powerline AC1200</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/gpt-vs-huggingface-duel-who-wins/"><u>GPT Vs. Huggingface Duel: Who Wins?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hunt-the-greatest-bargains-on-samsung-tech-during-amazons-prime-day-extravaganza/"><u>Hunt the Greatest Bargains on Samsung Tech During Amazon's Prime Day Extravaganza</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-master-money-makers-the-best-of-the-top-ig-earners/"><u>In 2024, Master Money Makers The Best of the Top IG Earners</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-mohu-leafs-tv-signal-receiver-for-49/"><u>In-Depth Evaluation of the Mohu Leaf's TV Signal Receiver for $49</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/resolved-fixing-dxtc-and-dcom-server-errors-in-xbox-accessory-driver-for-windows-11-8-and-7/"><u>Resolved: Fixing DXTC and DCOM Server Errors in Xbox Accessory Driver for Windows 11, 8 & 7</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sharing-gameplay-joy-a-step-by-step-guide-to-gamersharing-on-xbox-one/"><u>Sharing Gameplay Joy: A Step-by-Step Guide to Gamersharing on Xbox One</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/stepping-up-your-game-understanding-mcns-and-their-impact-on-creators-for-2024/"><u>Stepping Up Your Game Understanding MCNs and Their Impact on Creators for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tech-meets-tradition-discover-how-the-skagen-falster-3-reimagines-classic-watches-in-a-digital-age/"><u>Tech Meets Tradition: Discover How the Skagen Falster 3 Reimagines Classic Watches in a Digital Age</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-all-in-one-entertainment-device-a-deep-dive-into-the-apple-ipad-air-2019/"><u>The All-in-One Entertainment Device: A Deep Dive Into the Apple iPad Air (2019)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-garmin-venu-smartwatch-tracking-health-and-exercise-round-the-clock/"><u>The Complete Guide to Garmin Venu Smartwatch: Tracking Health and Exercise Round the Clock</u></a></li>
 </ul></div>
 

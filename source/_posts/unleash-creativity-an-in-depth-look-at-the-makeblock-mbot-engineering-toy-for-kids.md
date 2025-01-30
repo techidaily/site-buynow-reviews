@@ -1,7 +1,7 @@
 ---
 title: "Unleash Creativity: An In-Depth Look at the Makeblock mBot Engineering Toy for Kids"
-date: 2025-01-20T16:36:55.410Z
-updated: 2025-01-22T18:32:28.441Z
+date: 2025-01-24T16:46:35.824Z
+updated: 2025-01-29T19:05:30.575Z
 categories:
   - BestProducts
 description: "This Article Describes Unleash Creativity: An In-Depth Look at the Makeblock mBot Engineering Toy for Kids"
@@ -46,6 +46,10 @@ Lifewire / Yoona Wagener
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/A_Lpmewuqg5_v_xhsfuydQ5zl6E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_HeroSquare-067af9089d9c4269979450e8963726c9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 [View On Amazon $129](https://www.amazon.com/dp/B07W6V2RNK/?tag=lifewire-onsite-prod-20&ascsubtag=5120854%7Cn90dfc71ee24a4976b5267b7ff579808b08%7CB07W6V2RNK) [View On Walmart $134](https://www.walmart.com/ip/287424959) [View On Best Buy $61](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6397098.p)
@@ -82,17 +86,9 @@ _We purchased the Amazfit GTS_   _so our reviewer could put it to the test. Keep
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hMe1Ur0Wtt9LDIiSfC3zvE_5G7E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_02-0b1e98c2de40486b9fea116eb28ccd3c.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
 
  I was unable to test this device’s 50-meter water resistance for swimming or other aquatic workouts, but I did wear it in the shower without experiencing any issue. The manufacturer does note, however, that this wearable isn’t safe for hot showers or other water sports such as scuba diving, diving, and high-speed water sports, generally.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Comfort: Easy to wear but not as user-friendly
 
@@ -112,6 +108,10 @@ Lifewire / Yoona Wagener
 
  While the display looks great and is responsive, the lack of clarity about certain menu options, both the meaning and how to activate them, and the lack of control over data widget order, takes a few points away from the overall stylish look.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Performance: Solid GPS and decent activity tracking
 
  The Amazfit GTS supports 12 common workout profiles, including running and walking, which I used the most. While it wasn’t spot-on compared with my usual tracking device, the[Garmin Venu](https://www.lifewire.com/garmin-venu-review-4843916) , it wasn’t way off the mark. On one 3-mile run, the Amazfit GTS was less than 1 minute behind and the pace also followed suit at 9 seconds slower and 275 steps shorter, while heart rate was less accurate at about 15 beats faster than the Venu. Another pleasant consistency was the reliable onboard GPS and automatic stop/start feature that worked fairly well, though with some delay.
@@ -125,7 +125,7 @@ Lifewire / Yoona Wagener
 ![Amazfit GTS](https://www.lifewire.com/thmb/lrymbZEsmkXZy1YnjpGE5QutCbA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_04-109baf1e43444eff9789d9c02e2b2e77.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
@@ -154,10 +154,6 @@ Lifewire / Yoona Wagener
 
  While I gathered that a PAI of 100 seemed to be ideal for cardiovascular health, the app further complicated things by suggesting, for example, a 120-minute indoor workout to gain 15 PAI. It was difficult to grasp why that would be worth it or realistic, and like many areas of the software, it felt more flashy and underdeveloped than insightful.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Battery: Solid but considerably shy of the 14-day claim
 
  The manufacturer bills the battery longevity at an impressive 14 days with typical usage in smartwatch mode, which includes continuous heart rate and sleep monitoring and logging workouts three times a week.
@@ -171,7 +167,7 @@ Lifewire / Yoona Wagener
  Spending between $100 to $130 for a style-conscious, band-style fitness tracker from heavy hitters such as[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) and Garmin could increase the tracking benefits considerably with extras like VO2 Max and SPO2 monitoring. For a little more (or less), gaining a user-friendly layout and companion app could be worth losing the Apple Watch aesthetic this device works hard to mirror.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazfit GTS vs. Garmin vivosmart 4
@@ -187,7 +183,7 @@ Lifewire / Yoona Wagener
  The Amazfit GTS is comfortable and stylish and performs the basic fitness tracking tasks relatively well, but the confusing ecosystem diminishes the polish. If you love the look of the Apple Watch, this is a budget-friendly look-alike. But if you want a strong balance between performance and looks, the Amazfit GTS may not deliver.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -195,6 +191,10 @@ Lifewire / Yoona Wagener
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -227,17 +227,17 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/2024-approved-creating-captivating-inshot-edits-with-grace/"><u>2024 Approved Creating Captivating Inshot Edits with Grace</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/1728478652900-2024/"><u>2024年重建影片簡單指南：全面製作教程</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-asus-rog-phone-7-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Asus ROG Phone 7 System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-assassins-creed-valhalla-the-ultimate-guide-to-an-epic-journey-through-medieval-europe-and-scandinavia/"><u>Exploring Assassin's Creed Valhalla: The Ultimate Guide to an Epic Journey Through Medieval Europe and Scandinavia</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/master-the-art-of-editing-animal-glints-a-step-by-step-tutorial/"><u>Master the Art of Editing Animal Glints: A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-sky-with-ease-top-wireless-routers-for-jet-setters/"><u>Navigating the Sky with Ease: Top Wireless Routers for Jet-Setters</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-the-asus-rog-rapture-gt-ax11000-a-game-changer-in-speed-and-functionality-for-gamers/"><u>Review: The Asus ROG Rapture GT-AX11000 - A Game Changer in Speed & Functionality for Gamers</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-future-of-phablets-foretelling-details-on-the-google-pixel-fold-2-pricing-release-plans-and-speculative-features/"><u>The Future of Phablets: Foretelling Details on the Google Pixel Fold 2 - Pricing, Release Plans & Speculative Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-insider-guide-to-buying-a-game-laptop/"><u>The Insider Guide to Buying a Game Laptop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-considerations-for-pre-owned-tech-buyers/"><u>Top Considerations for Pre-Owned Tech Buyers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unbox-the-superzoom-diving-into-powershot-sx70s-features/"><u>Unbox the Superzoom: Diving Into PowerShot SX70's Features</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/windows-defender-vs-windows-security-app-on-windows-nt-whats-the-distinction-insights-from-yl-software-experts/"><u>Windows Defender Vs. Windows Security App on Windows nT: What's the Distinction? Insights From YL Software Experts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-filters-a-comprehensive-guide-for-2024/"><u>[Updated] Instagram Filters A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dell-xps-13-7390-2-in-1-laptop-evaluation-an-exquisite-and-versatile-ultrathin-computer/"><u>Dell XPS 13 (7390) 2-in-1 Laptop Evaluation: An Exquisite & Versatile Ultrathin Computer</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-craft-your-story-with-immersive-youtube-video-editing-tips/"><u>In 2024, Craft Your Story with Immersive YouTube Video Editing Tips</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-laughters-launchpad-7-funny-video-frameworks-for-comedians/"><u>In 2024, Laughter's Launchpad 7 Funny Video Frameworks for Comedians</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-navigating-facebooks-features-for-sharing-youtube-content/"><u>In 2024, Navigating Facebook's Features for Sharing YouTube Content</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/interactive-showdown-with-the-philips-49-curvaceous-oled-display-perfect-for-gamers/"><u>Interactive Showdown with the Philips 49 Curvaceous OLED Display - Perfect for Gamers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/mastering-mp3s-incorporating-tunes-into-powerpoint-slides-for-2024/"><u>Mastering MP3s Incorporating Tunes Into PowerPoint Slides for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pewdiepies-annual-earnings-breakdown-for-2024/"><u>PewDiePie's Annual Earnings Breakdown for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/premium-sound-collection-no-cost-top-luts-listed-here/"><u>Premium Sound Collection No-Cost, Top LUTs Listed Here</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-of-mobile-power-solutions-for-your-laptop/"><u>The Ultimate Selection of Mobile Power Solutions for Your Laptop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-for-highly-rated-battery-operated-google-wireless-nest-doorbells/"><u>Top Review for Highly Rated Battery Operated Google Wireless Nest Doorbells</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-premiere-rush-too-expensive-check-out-these-4-affordable-alternatives/"><u>Updated In 2024, Premiere Rush Too Expensive? Check Out These 4 Affordable Alternatives</u></a></li>
 </ul></div>
 

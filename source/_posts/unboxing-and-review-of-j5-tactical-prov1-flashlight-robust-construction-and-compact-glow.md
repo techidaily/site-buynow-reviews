@@ -1,7 +1,7 @@
 ---
 title: Unboxing and Review of J5 Tactical ProV1 Flashlight – Robust Construction & Compact Glow
-date: 2024-08-22T16:10:01.480Z
-updated: 2024-08-23T16:10:01.480Z
+date: 2025-01-29T05:44:34.265Z
+updated: 2025-01-30T07:47:18.604Z
 categories:
   - BestProducts
 description: This Article Describes Unboxing and Review of J5 Tactical ProV1 Flashlight – Robust Construction & Compact Glow
@@ -14,8 +14,9 @@ thumbnail: https://www.lifewire.com/thmb/ARC_76T0ZzQn3oJob--v2nAOvrA=/400x300/fi
 3
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/AjVVBONBD_MfQeA3voTlfDA2Jrc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
@@ -41,6 +42,10 @@ thumbnail: https://www.lifewire.com/thmb/ARC_76T0ZzQn3oJob--v2nAOvrA=/400x300/fi
 
 3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
@@ -65,8 +70,9 @@ thumbnail: https://www.lifewire.com/thmb/ARC_76T0ZzQn3oJob--v2nAOvrA=/400x300/fi
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -77,9 +83,6 @@ thumbnail: https://www.lifewire.com/thmb/ARC_76T0ZzQn3oJob--v2nAOvrA=/400x300/fi
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Humans have never been so annoying**
 
  The game begins with a multi-hour long tutorial program, which I highly recommend you undertake before playing the game. There are so many various aspects to the game—basic needs, threats to your colony, resources to import and export—that it would be disastrous not to get caught up to speed. It took me a total of five hours to complete these tutorials, but I had to restart a couple after a couple operator error moments when I accidentally destroyed my only water vaporizer and had no idea how to rebuild it. So, it will probably take you less.
@@ -113,22 +116,21 @@ thumbnail: https://www.lifewire.com/thmb/ARC_76T0ZzQn3oJob--v2nAOvrA=/400x300/fi
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Other city-building games**
 
  What makes Surviving Mars unique is that technically it is a city-[building game](https://www.lifewire.com/best-offline-building-games-4580415) , but instead of building bus lines, you have to build oxygen and water lines to ensure colony survival. However, just like city-building games, you are building infrastructure. If you’re solely focused on building up a city, Surviving Mars would be a great addition to your library, but so would[Cities: Skylines](https://store.steampowered.com/app/255710/Cities%5FSkylines/) (view on Steam). Both focus on creating a habitat from scratch—one just happens to be hundreds of thousands of miles away while the other could be in a tropical or a Midwestern climate.
@@ -153,14 +155,11 @@ thumbnail: https://www.lifewire.com/thmb/ARC_76T0ZzQn3oJob--v2nAOvrA=/400x300/fi
 * Graphics  HD 4600/Geforce 620/Radeon 6450 or equivalent GPUs with 1 GB of video RAM
 * Game Updates  Green Planet, Project Laika, Space Race, Colony Design Set, Marsvision Song Contest
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +168,19 @@ thumbnail: https://www.lifewire.com/thmb/ARC_76T0ZzQn3oJob--v2nAOvrA=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-united-creatives-brands-meet-youtube/"><u>[New] United Creatives Brands Meet YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-inventory-list-a-range-of-video-recording-devices/"><u>[Updated] In 2024, Inventory List A Range of Video Recording Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-seamless-sound-moves-in-premiere-pro/"><u>2024 Approved Unveiling Seamless Sound Moves in Premiere Pro</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/aufbauen-sie-eine-duplizierung-ihres-wiederherstellungspartitionstexts-auf-einem-samsung-ssd-eine-schritt-fur-schritt-anleitung/"><u>Aufbauen Sie Eine Duplizierung Ihres Wiederherstellungspartitionstexts Auf Einem Samsung SSD: Eine Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-3d-blu-ray-players/"><u>Best 3D Blu-Ray Players</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/garmin-vivomove-hr-watch-evaluation-the-perfect-fusion-of-style-and-activity-tracking/"><u>Garmin Vivomove HR Watch Evaluation: The Perfect Fusion of Style and Activity Tracking</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-samsung-galaxy-a05-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Samsung Galaxy A05 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/intense-performance-at-steep-costs-an-in-depth-look-at-alienware-aurora-r7/"><u>Intense Performance at Steep Costs: An In-Depth Look at Alienware Aurora R7</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-low-output-issues-a-users-guide-to-optimizing-audio-in-windows-11/"><u>Resolving Low Output Issues: A User's Guide to Optimizing Audio in Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-connections-with-tangos-unlimited-text-voice-and-video-calling-no-charge/"><u>Revolutionize Your Connections with Tango's Unlimited Text, Voice, & Video Calling - No Charge!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sumind-bt70b-bluetooth-transmitter-evaluation-ultimate-companion-for-in-car-connectivity/"><u>Sumind BT70B Bluetooth Transmitter Evaluation: Ultimate Companion for In-Car Connectivity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-legacy-lives-on-a-modern-take-on-the-vintage-netgear-c3000-router-performance-review/"><u>The Legacy Lives On: A Modern Take on the Vintage Netgear C3000 Router Performance Review</u></a></li>
+</ul></div>
 

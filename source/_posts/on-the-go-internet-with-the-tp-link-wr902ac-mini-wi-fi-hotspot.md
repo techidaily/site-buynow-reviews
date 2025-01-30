@@ -1,7 +1,7 @@
 ---
 title: On-the-Go Internet with the TP-Link WR902AC Mini Wi-Fi Hotspot
-date: 2024-08-22T16:06:41.861Z
-updated: 2024-08-23T16:06:41.861Z
+date: 2025-01-29T07:08:36.986Z
+updated: 2025-01-30T02:52:41.477Z
 categories:
   - BestProducts
 description: This Article Describes On-the-Go Internet with the TP-Link WR902AC Mini Wi-Fi Hotspot
@@ -13,15 +13,8 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## TP-Link Archer A6 AC1200 Gigabit Smart Wi-Fi Router
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/hTth7_RTT4bEi0nhlZj7rPvMYL0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -48,11 +41,16 @@ Lifewire / Jeremy Laukkonen
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## TP-Link Archer A6 AC1200 Gigabit Smart Wi-Fi Router
 
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/eB886Wl9r3D8YMg227kYv9GRkJs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -78,9 +76,6 @@ Lifewire / Jeremy Laukkonen
 
  Specifications don’t always tell the whole story, so I recently spent about five days with a TP-Link Archer A6 plugged into my own network. I tested how well it holds up under daily use with a lot of data-hungry devices connected at once, tested top speeds and range on both bands, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## **Design: Improved over older designs**
 
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes. Instead of the flat or glossy black finish seen on most routers, the A6 has a two-tone crosshatched pattern that creates an interesting visual effect. The edges are rounded instead of angular, and the top actually curves gently downward when viewed head-on.
@@ -89,15 +84,16 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/eeaRHW4APuNCYThw1t-TVwYpmSI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_04-4739ffd6705348959e05e41ab9da2292.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  The ports and power button are all found on the back of the unit in a fairly standard array, and you’ll find the indicator LEDs on top near the front edge. The positioning is good for desktop use, and it also leaves the indicators clearly visible when wall mounted.
 
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Completely painless once you unwrap the antennas**
 
  This router comes fully assembled, which makes it a bit easier and faster to set up than most. I’m not a fan of the fact that you can’t remove the antennas, but it definitely saves a bit of time. Unfortunately, that saved time is mostly wiped out by the ridiculous wrap job TP-Link does on the side antennas.
@@ -120,6 +116,10 @@ Lifewire / Jeremy Laukkonen
 
  On the physical side, the A6 comes with a bare minimum single WAN port and four LAN ports. There isn’t even a single USB port, so you can’t use this router to host a networked USB drive.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Network Performance: Decent performance for a budget router**
 
  I tested this router on a Mediacom[Gigabit Ethernet](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) connection, performing extensive tests on the wired Ethernet connection and both wireless bands, in addition to regular use over the course of about five days.
@@ -136,9 +136,6 @@ Lifewire / Jeremy Laukkonen
 
  You may end up needing a Wi-Fi range extender with the Archer A6 even if your house isn’t that large.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Basic and easy to use**
 
  The Archer A6 uses the same familiar web interface TP-Link has used for years. If you’ve ever used a TP-Link router before, you’ll already be familiar with the system. If you haven’t, it’s very easy to pick up.
@@ -152,6 +149,10 @@ Lifewire / Jeremy Laukkonen
  In addition to the web interface, TP-Link also offers a phone app that lets you change basic settings. Advanced settings have to be accessed through the web portal.
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/2qgk2j764OivVDjAgICPpQb-Xig=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_03-7abb56dd933947dc892f8ec43ef36863.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -173,9 +174,6 @@ Lifewire / Jeremy Laukkonen
 
  The TP-Link Archer A6 is a great little budget-priced router that performs better than I expected it to. It’s important to stress that it’s an AC1200 router, and it’s only dual-band, so don’t expect it to do the job if you have dozens of data-hungry devices or an especially large house with a complicated internal setup. But if you just want an affordable router that performs well across about 1,400-1,600 square feet of space, this is a great option.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Archer A6 AC1200 Gigabit Smart Wi-Fi Router
@@ -197,14 +195,11 @@ Lifewire / Jeremy Laukkonen
 * Range  Medium homes
 * Parental Controls  Yes
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -213,4 +208,24 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-extreme-camers-face-off-gopro-hero5-black-vs-session/"><u>[New] Extreme Camers Face-Off GoPro Hero5 Black vs Session</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-building-a-million-views-empire-safe-and-secure-methods/"><u>[New] In 2024, Building a Million Views Empire Safe and Secure Methods</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-skyrocket-to-success-mastering-seo-for-youtubers-and-beyond/"><u>[Updated] 2024 Approved Skyrocket to Success Mastering SEO for YouTubers and Beyond</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-building-bonds-youtube-and-brands-in-unity/"><u>[Updated] Building Bonds YouTube and Brands in Unity</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-cinematic-illumination-a-filmmakers-path-to-stunning-colors/"><u>2024 Approved Cinematic Illumination A Filmmaker's Path to Stunning Colors</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-value-in-tech-a-complete-beantech-bitwatch-s1-plus-smartwatch-evaluation-for-savvy-consumers/"><u>Discovering Value in Tech: A Complete Beantech Bitwatch S1 Plus Smartwatch Evaluation for Savvy Consumers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-guidelines-to-follow-when-investing-in-a-previously-owned-ipad/"><u>Essential Guidelines To Follow When Investing in a Previously Owned iPad</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-nokia-c300-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Nokia C300</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-roadmap-to-an-influential-instagram-profile-six-simple-steps-for-following-and-verified-recognition/"><u>In 2024, The Roadmap to an Influential Instagram Profile Six Simple Steps for Following and Verified Recognition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-aging-netgear-c30er-cable-modem-and-router-combo/"><u>In-Depth Review of the Aging Netgear C30er Cable Modem and Router Combo</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/pros-picks-8-superior-tripods-for-4k-videos/"><u>Pro's Picks 8 Superior Tripods for 4K Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-asus-ax6000-rt-ax88u-the-ultimate-smart-wi-fi-6-router-packed-with-impressive-capabilities/"><u>Review of Asus AX6000 RT-AX88U: The Ultimate Smart Wi-Fi 6 Router Packed with Impressive Capabilities</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-crown-jewel-of-pc-gaming-a-detailed-review-of-alienware-aurora-r1n-as-top-performer/"><u>The Crown Jewel of PC Gaming: A Detailed Review of Alienware Aurora R1n as Top-Performer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-list-leading-usb-flash-drives/"><u>The Ultimate List: Leading USB Flash Drives</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-winegard-fl5500a-flatwave-antenna-reviewed-solid-performance-overshadowed-by-high-price/"><u>The Winegard FL5500A FlatWave Antenna Reviewed: Solid Performance Overshadowed by High Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-oneplus-sales-and-discounts-on-prime-day/"><u>Top OnePlus Sales and Discounts on Prime Day</u></a></li>
+</ul></div>
 

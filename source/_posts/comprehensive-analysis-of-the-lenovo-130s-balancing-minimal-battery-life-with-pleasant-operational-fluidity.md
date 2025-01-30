@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Analysis of the Lenovo 130S: Balancing Minimal Battery Life with Pleasant Operational Fluidity"
-date: 2025-01-18T19:04:40.870Z
-updated: 2025-01-22T17:52:51.449Z
+date: 2025-01-26T23:30:05.140Z
+updated: 2025-01-29T21:11:47.372Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Analysis of the Lenovo 130S: Balancing Minimal Battery Life with Pleasant Operational Fluidity"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/acf475c1e6fd1567e7a4a77c00bb440d7e3dd85bc
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Sabrent Mini Travel USB Optical Mouse
 
@@ -51,10 +47,6 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
 [View On Amazon $6](https://www.amazon.com/dp/B01MSJPX06/?tag=lifewire-onsite-prod-20&ascsubtag=4799034%7Cn6493c6f4bf4b471ba05fab7dd162554120%7CB01MSJPX06)
@@ -76,6 +68,10 @@ Lifewire / Rebecca Isaacs
 
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Basic**
 
  The Sabrent was not designed for heavy gaming in mind; its design is so tiny at 3.2 x 1.5 inches (LW) that it fits into the cup of your palm with some room to spare. Unlike gaming mice, which can be complex, with a plethora of buttons/features, the all-black, 1.5-ounce mouse only has three buttons: the left (main) button, the wheel, and the right button. While this might turn off many users, in reality, it turns out to be of huge benefit. Thanks to its simplicity, ambidextrous users will appreciate its ability to swap between dominant hands.
@@ -85,10 +81,6 @@ Lifewire / Rebecca Isaacs
  It’s important to keep in mind that this is a wired, ergonomic mouse that relies on a USB port connection. So while it doesn’t require any batteries, it can be problematic if you need more than 25 inches the cable provides. The cable itself expands with a gentle pull of the cable from its own mini-port, and is easily retractable with a tug on each side of the cable. Just be careful when retracting it, as it is similar to a window shade in that it retracts with near-violent gusto.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -100,15 +92,7 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Precise, but mildly problematic**
 
@@ -126,13 +110,25 @@ Lifewire / Rebecca Isaacs
 
  The cable length left something to be desired in a work PC, however. At 25 inches, it sounds like a dream come true, however, testing it on a standing desk where the PC tower is located further away from the keyboard and mouse we realized there was a problem. The length cable prevented us from shifting our grip on the mouse, and the tugging was a frustrating physical constraint. Laptop users won’t even notice the cable, but PC users may want to look for something a little more wireless.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Comfort: Too small**
 
  Because the mouse is so tiny, and barely fit into the palm of our hand, we constantly had to adjust our fingers to compensate for its size. Granted, we used the mouse for up to eight hours at a time in testing, and our muscles didn’t tire out and hands didn’t cramp, which was a testament to the ergonomic design. However, constantly having to shift our grip to press buttons and scroll was mildly annoying, especially when we were deeply engaged in work.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Reasonable**
 
@@ -151,6 +147,10 @@ Lifewire / Rebecca Isaacs
 **A solid, cost-conscious travel mouse.**
 
  While we constantly had to shift our grip on the tiny Sabrent mouse, we really liked its portability and fast, accurate movements. The cable proved to be difficult for desktop use, however, laptop users will enjoy the speeds that accompany the wired cable.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,19 +179,17 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-from-picture-perfect-videos-to-melodious-mp3-files/"><u>[New] 2024 Approved From Picture-Perfect Videos to Melodious MP3 Files</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-capture-professional-quality-with-complimentary-and-subscription-luts/"><u>[New] Capture Professional Quality with Complimentary & Subscription LUTs</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-strategies-for-storing-real-time-webcam-talks/"><u>[New] In 2024, Strategies for Storing Real-Time Webcam Talks</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-achieving-zen-in-meetings-how-to-disable-background-speech/"><u>[Updated] Achieving Zen in Meetings How to Disable Background Speech</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-enhancing-youtube-viewing-with-faster-or-slower-video-pace/"><u>2024 Approved Enhancing YouTube Viewing with Faster or Slower Video Pace</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apples-finest-unveiling-4-reasons-for-purchasing-vision-pro/"><u>Apple's Finest: Unveiling 4 Reasons for Purchasing Vision Pro</u></a></li>
-<li><a href="https://driver-download.techidaily.com/effortless-resolution-to-logitech-c615s-driver-complications/"><u>Effortless Resolution to Logitech C615's Driver Complications</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-seamless-online-transition-the-portable-ourlink-u631-usb-wi-fi-stick/"><u>Experience Seamless Online Transition: The Portable Ourlink U631 USB Wi-Fi Stick</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-fix-service-failed-for-virtual-disk-support/"><u>How to Fix Service Failed for Virtual Disk Support</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-itel-s23mirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Itel S23Mirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-acer-predator-triton-n-300-se-affordable-power-in-a-portable-package/"><u>In-Depth Look at the Acer Predator Triton N 300 SE – Affordable Power in a Portable Package</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209545957-9781528786430-myths-and-dreams/"><u>Myths and Dreams | Free Book</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sony-wm-x900-top-tier-sound-review/"><u>Sony WM-X900: Top-Tier Sound Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/understanding-the-financial-wisdom-behind-applecare-plus-extension/"><u>Understanding the Financial Wisdom Behind AppleCare Plus Extension</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-webcam-wonders-unveiling-tools-for-top-video-quality/"><u>[New] Webcam Wonders - Unveiling Tools for Top Video Quality</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-decoding-how-to-grab-youtube-captions-3-effective-techniques-revealed/"><u>[Updated] 2024 Approved Decoding How To Grab YouTube Captions 3 Effective Techniques Revealed</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-elevate-snapchat-snaps-with-customizable-user-voices/"><u>[Updated] 2024 Approved Elevate Snapchat Snaps with Customizable User Voices</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-beneath-the-spotlight-top-youtube-events-after-vidcon-for-2024/"><u>[Updated] Beneath the Spotlight Top YouTube Events After VidCon for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-the-technological-leap-in-home-camcorders-and-live-feeds/"><u>[Updated] In 2024, The Technological Leap in Home Camcorders and Live Feeds</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-masterful-voice-changes-without-cost-explore-these-options/"><u>2024 Approved Masterful Voice Changes Without Cost - Explore These Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bluetooth-audio-simplified-the-complete-review-of-lihan-lhfm1039-fm-transmitter-for-car-stereo-systems/"><u>Bluetooth Audio Simplified: The Complete Review of LIHAN LHFM1039 FM Transmitter for Car Stereo Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-newly-improved-budget-friendly-apple-ipad-102-gen-8/"><u>Comprehensive Evaluation of the Newly Improved, Budget-Friendly Apple iPad 10.2 - Gen 8</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/leveraging-ai-conversations-using-chatgpt-widget-with-android-phones/"><u>Leveraging AI Conversations: Using ChatGPT Widget with Android Phones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-of-iphones-versus-samsung-phones-which-suits-you-best/"><u>Pros and Cons of iPhones Versus Samsung Phones – Which Suits You Best?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-premier-guide-to-choosing-an-ergonomic-keyboard-best-picks-of-2econd/"><u>The Premier Guide to Choosing an Ergonomic Keyboard: Best Picks of 2Econd</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/x-chair-x4-executive-chair/"><u>X-Chair X4 Executive Chair</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Review of the Portable and Economical Samsung Galaxy S10e - Quality Meets Value
-date: 2025-01-16T18:34:24.057Z
-updated: 2025-01-22T16:05:08.928Z
+date: 2025-01-26T05:21:32.561Z
+updated: 2025-01-29T18:37:14.601Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Review of the Portable and Economical Samsung Galaxy S10e - Quality Meets Value
@@ -23,7 +23,7 @@ thumbnail: https://www.lifewire.com/thmb/KF5dSQ8koiPEGwpfXXSOE5SZJXM=/400x300/fi
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -71,10 +71,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -87,10 +83,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -98,6 +90,10 @@ Lifewire / Erika Rawes
  Once you connect the antenna’s cable to your TV, you’ll need to find the best placement. This is perhaps the most difficult part of the setup process. My test home is in a wooded area, and I found the best placement was near or directly on the window. However,[to improve your antenna’s reception](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) , it’s usually a good idea to place the antenna high up in a room close to the home’s exterior (and nearest to the transmitter towers) and to avoid obstacles like walls and tree cover.
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
 
@@ -109,6 +105,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -117,17 +117,21 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -138,10 +142,6 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,18 +174,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-imovie-music-enhancement-using-youtube-songs-for-2024/"><u>[Updated] Effortless iMovie Music Enhancement Using YouTube Songs for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/44cm576o44gx44ge55s75yop44ks5lplusd44gh44gk44gk44cb44kk44oz44k544k44op44kk44ow44gu5yas6act44go5pyr5bcplus44ks6yyy55s744gz44kl5pa55rov44cn/"><u>「美しい画像を保ちつつ、インスタライブの冒頭と末尾を録画する方法」</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-voices-for-change-highlighting-influential-ladies-on-youtube/"><u>2024 Approved Voices for Change Highlighting Influential Ladies on YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-blh4100-blade-120rc-helicopter-evaluation-for-outdoor-flying/"><u>Comprehensive BLH4100 Blade 120R/C Helicopter Evaluation for Outdoor Flying</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-lg-um7300-a-beginners-49-4k-flat-screen-review/"><u>Comprehensive Guide to the LG UM7300 - A Beginner's 49 4K Flat Screen Review</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/downloading-the-latest-logitech-m525-keyboard-driver-for-smooth-operation/"><u>Downloading the Latest Logitech M525 Keyboard Driver for Smooth Operation</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/engage-with-googles-online-gatherings-for-2024/"><u>Engage with Google's Online Gatherings for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fidos-window-happiness-through-pet-monitoring/"><u>Fido's Window: Happiness Through Pet Monitoring</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/green-walls-in-grey-buildings-a-step-towards-eco-cities/"><u>Green Walls in Grey Buildings A Step Towards Eco-Cities</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-your-iphone-7-plus-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On your iPhone 7 Plus</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/master-the-art-of-fast-internet-sharing-using-d-links-powerline-technology-your-step-by-step-guide/"><u>Master the Art of Fast Internet Sharing Using D-Link's Powerline Technology - Your Step by Step Guide</u></a></li>
-<li><a href="https://app-tips.techidaily.com/top-rated-web-hosting-providers-in-depth-analysis-and-reviews-by-tech-experts-zdnet/"><u>Top-Rated Web Hosting Providers : In-Depth Analysis & Reviews by Tech Experts | ZDNet</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-differences-between-samsungs-flagship-phones-s10plus-versus-s20/"><u>Unveiling the Differences Between Samsung's Flagship Phones: S10+ versus S20</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-your-phone-your-camera-tips-for-mobile-video-shooting/"><u>[New] In 2024, Your Phone, Your Camera Tips for Mobile Video Shooting</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-navigating-auto-captioned-content-in-social-media-visuals/"><u>[New] Navigating Auto-Captioned Content in Social Media Visuals</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-ultimate-5-gaming-monitors-for-playstation-and-xbox/"><u>[Updated] 2024 Approved The Ultimate 5 Gaming Monitors for PlayStation & Xbox</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-simplified-steps-for-posting-tweets-on-facebook/"><u>2024 Approved Simplified Steps for Posting Tweets on Facebook</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/5a6f6kgm5a6m5lqg77ya44op44kk44ow44oj44kt44ol44oh44oz44oi44o744on44od44oi44ov44o844kv44gr5oiq5yqf44gx44gf5o6l57aa54q25owl/"><u>実行完了：ライブドキュメント・ネットワークに成功した接続状態</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-of-the-best-leading-usb-wi-fi-adapters-you-cant-miss/"><u>Best of the Best: Leading USB Wi-Fi Adapters You Can't Miss!</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/essential-techniques-for-saving-and-recording-ps4-gameplay-for-2024/"><u>Essential Techniques for Saving and Recording PS4 Gameplay for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exceptional-energy-solutions-assessed-thorough-examination-of-the-halo-bolt-power-bank-and-jump-starter/"><u>Exceptional Energy Solutions Assessed: Thorough Examination of the Halo Bolt Power Bank and Jump Starter</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-moto-g-stylus-5g-2023-bootloader-easily-by-drfone-android/"><u>How to Unlock Motorola Moto G Stylus 5G (2023) Bootloader Easily</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-mastering-culinary-cinematography-essential-food-film-techniques/"><u>In 2024, Mastering Culinary Cinematography Essential Food Film Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-watch-active-your-ultimate-companion-for-a-healthier-lifestyle/"><u>In-Depth Analysis of the Samsung Galaxy Watch Active: Your Ultimate Companion for a Healthier Lifestyle</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-horde-mode-an-in-depth-look-at-sonys-new-take-on-the-zombie-apocalypse-with-bikes/"><u>Unveiling Horde Mode: An In-Depth Look at Sony's New Take on the Zombie Apocalypse with Bikes</u></a></li>
 </ul></div>
 

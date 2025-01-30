@@ -1,7 +1,7 @@
 ---
 title: "Budget-Friendly Fellowes Microban Wired Keyboard Evaluation: An Affordable Top Pick"
-date: 2024-08-22T16:08:54.252Z
-updated: 2024-08-23T16:08:54.252Z
+date: 2025-01-23T21:04:46.402Z
+updated: 2025-01-30T05:41:17.458Z
 categories:
   - BestProducts
 description: "This Article Describes Budget-Friendly Fellowes Microban Wired Keyboard Evaluation: An Affordable Top Pick"
@@ -13,15 +13,13 @@ thumbnail: https://thmb.techidaily.com/0cd373a6b0eece48a6e2d5d0248da5d1df8fff3f7
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Z-Edge Z3 Plus Dashcam
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/OL3QdFJ2E8lLE0w3IGyxR-rAD4Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -42,9 +40,17 @@ Lifewire / Danny Chadwick
 
 4.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -97,9 +103,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Super straightforward**
 
  If you’re even passingly familiar with digital cameras, you can have the Z3 Plus set up and ready to go within a few minutes of taking it out of the box. And while you should read the user manual before turning it on, you probably won’t run into any major difficulties if you don’t. The most time-consuming part of the setup is running the power cable up and around your windshield so it’s not dangling down to the power supply while you drive. This requires you to tuck the cord under your car’s upholstery and panels, which takes about 20 minutes to complete.
@@ -111,8 +114,9 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Camera Quality: Beyond high definition**
 
  The Z3 Plus has outstanding recording abilities for a camera this size and can capture footage up to 2560 x 1440 resolution. However, this will fill up your camera quite fast, so you can set it as low as 720p if you don’t need super high-resolution footage. You can also adjust the frame rate to 30 and 60 frames per second (for resolutions exceeding 1920 x 1080, only 30 fps is available).
@@ -125,9 +129,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Never failed**
 
  We tested the Z-Edge Z3 Plus on a six-hour road trip, and throughout the drive, the Z3 Plus nor the suction cup failed. So long as it was plugged into power, it functioned flawlessly.
@@ -136,13 +137,14 @@ Lifewire / Danny Chadwick
 
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Fair price for a fair product**
 
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Competition: Z-Edge Z3 Plus vs. Apeman C450 Dash Camera**
 
  We tested the Z3 Plus alongside the Apeman C450 Series A dashcam. The two are comparable in size and function, but the Apeman is a more budget-friendly model that costs around $50\. We definitely noticed a difference when it comes to the construction quality, image resolution, clarity of the user manual, and overall experience—the Z3 Plus was superior in almost every way.
@@ -182,8 +184,6 @@ Lifewire / Danny Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -191,4 +191,24 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gopro-time-lapse-tips-create-epic-time-lapse-video/"><u>2024 Approved GoPro Time Lapse Tips Create Epic Time Lapse Video</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/boost-your-battery-life-with-our-insightful-review-of-the-innovative-halo-bolt-portable-charger/"><u>Boost Your Battery Life with Our Insightful Review of the Innovative Halo Bolt Portable Charger</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/differences-between-electric-vehicle-types-bev-phev-fcev-and-hybrids-uncovered/"><u>Differences Between Electric Vehicle Types: BEV, PHEV, FCEV & Hybrids Uncovered</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-convenient-power-of-kensuns-rugged-portable-tire-charger/"><u>Discover the Convenient Power of Kensun's Rugged, Portable Tire Charger</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-nokia-c02-device-sim-by-drfone-android/"><u>Easily Unlock Your Nokia C02 Device SIM</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/echo-dot-vs-homepod-mini-showdown-unveiling-their-core-differences/"><u>Echo Dot Vs. HomePod Mini Showdown: Unveiling Their Core Differences</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/end-call-silence-syndrome-how-to-make-your-iphone-ring-again/"><u>End Call Silence Syndrome: How to Make Your iPhone Ring Again</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-microsoft-sculpt-ergonomic-keyboard-exceptional-affordability-and-comfort/"><u>Expert Analysis of the Microsoft Sculpt Ergonomic Keyboard - Exceptional Affordability & Comfort</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-zeeedge-z3plus-an-economical-and-user-friendly-dashboard-camera-experience/"><u>Exploring the ZeeEdge Z3+: An Economical and User-Friendly Dashboard Camera Experience</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-zte-blade-a73-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on ZTE Blade A73 5G online without jailbreak</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/lava-blaze-pro-5g-music-recovery-recover-deleted-music-from-lava-blaze-pro-5g-by-fonelab-android-recover-music/"><u>Lava Blaze Pro 5G Music Recovery - Recover Deleted Music from Lava Blaze Pro 5G</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/master-your-destiny-with-skyrim-the-ultimate-rpg-experience-on-nintendo-switch/"><u>Master Your Destiny with Skyrim - The Ultimate RPG Experience on Nintendo Switch</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/navigate-to-your-keys-easily-with-our-top-pickings-from-2024s-best-locators/"><u>Navigate to Your Keys Easily with Our Top Pickings From 2024'S Best Locators</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/owc-mercury-pro-assessment-exceptional-durability-and-superior-speed/"><u>OWC Mercury Pro Assessment: Exceptional Durability and Superior Speed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-notch-insights-into-the-newest-generation-of-amazon-kindle-paperwhite-for-book-lovers/"><u>Top-Notch Insights Into the Newest Generation of Amazon Kindle Paperwhite for Book Lovers</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-a-wonderful-video-slideshow-with-your-travel-photos/"><u>Updated 2024 Approved How to Make a Wonderful Video Slideshow with Your Travel Photos</u></a></li>
+</ul></div>
 

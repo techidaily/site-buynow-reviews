@@ -1,7 +1,7 @@
 ---
 title: "A Fresh Look at Demon's Souls: Stunning Upgrades & Timeless Adventure"
-date: 2024-08-22T16:10:52.025Z
-updated: 2024-08-23T16:10:52.025Z
+date: 2025-01-25T18:12:52.453Z
+updated: 2025-01-29T20:40:54.400Z
 categories:
   - BestProducts
 description: "This Article Describes A Fresh Look at Demon's Souls: Stunning Upgrades & Timeless Adventure"
@@ -13,12 +13,13 @@ thumbnail: https://thmb.techidaily.com/aa15e346f7d15551b7e87cd1f2e88212dee28fcef
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## Withings Withings Move Hybrid Smartwatch
 
 ![Withings Move](https://www.lifewire.com/thmb/lRf4MewZgHR7jJoirox43xON-Ds=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -42,9 +43,6 @@ Lifewire / Yoona Wagener
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Withings Withings Move Hybrid Smartwatch
 
 ![Withings Move](https://www.lifewire.com/thmb/0q_63hnHYzqQ5_H2Q2RzjXF5Nls=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
@@ -74,16 +72,18 @@ Lifewire / Yoona Wagener
 
  We tested the Withings Move to see how comfortable it is for everyday use and explore the extent of its smartwatch characteristics.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Withings Move](https://www.lifewire.com/thmb/SRCqvDOet8fouJ8uY8ze0LlCiog=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-2-1fdc9f06eb6a45f2baa2b840822fba5d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Slim and clean**
 
  We don’t typically think of[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) as being nearly weightless, but the Withings Move is just that. Weighing in at just a little over one ounce, this watch is almost undetectable on the wrist.
@@ -98,12 +98,13 @@ Lifewire / Yoona Wagener
 
  Depending on the category you fall into, the lack of a touchscreen could be the largest benefit or drawback of the design. Users who want the look of a regular analog watch will be pleased by the lack of a typical smartwatch screen on their wrist.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![Withings Move](https://www.lifewire.com/thmb/Qz1dlsE8jl99mXc7-kQ5LCVoiK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-3-b1e97631284d40829bd5714c59dc5f2a.jpg)
 
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process** :**As easy as 1-2-3**
 
@@ -115,9 +116,6 @@ Lifewire / Yoona Wagener
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Comfort: Light as a feather, even while sleeping**
 
  Some watches can feel heavy by the end of the day, but we didn’t encounter that weighed-down feeling with the Withings Move. The watch is really lightweight and the band is soft, flexible, and slim, which made sleeping with it a non-issue. It was also easy to achieve a good fit—especially for smaller wrists—thanks to the plentiful notches and the tab to keep the band in place.
@@ -148,20 +146,18 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery: Long-lasting and hassle-free**
 
  The Withings Move is reported to have a battery life of up to 18 months, and we really enjoyed that aspect over the week we tested it. Unlike typical smartwatches, we didn’t have to worry about draining the battery and recharging. The internal battery is a typical replaceable watch battery, and the user guide offers directions for removal and replacement when the time comes.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## **Software: An emphasis on general wellness**
 
  Though activity data is somewhat limited, the Withings Move does offer some other more in-depth insights. Sleep activity, for example, is automatically detected and doesn’t require any other action besides wearing the watch while sleeping. When you wake in the morning, you’ll be able to view your quality of sleep for the previous night based on the number of interruptions, duration, and even depth of sleep. There is a hiccup with this feature, though—we noticed when we took it off at our desk one morning, it seemed to think we had fallen back asleep and continued reading our sleep quality.
@@ -180,9 +176,6 @@ Lifewire / Yoona Wagener
 
  Those looking for a dressier and more substantial watch may find these Fossil models to be better alternatives. Other devices that are comparable in price, like the Fitbit Inspire Fitness Tracker, lack the analog watch qualities and look like designated activity trackers. The Withings Move splits the difference at a modest price.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Withings Move vs. Misfit Phase**
 
  The Misfit Phase is another hybrid smartwatch with a classic wristwatch look, maybe even more so than the Withings Move. Priced at around $175, the Misfit Phase is more expensive, but also comes with a few bonuses that the Withings Move lacks, like text notifications, playing and pausing music on your phone, and also taking selfies.
@@ -196,6 +189,10 @@ Lifewire / Yoona Wagener
 **Best for those who prefer the analog experience.**
 
  The Withings Move is a strong entry-level fitness tracker for the person who wants to track activities without going all-in on a smartwatch. It’s inexpensive, sporty, and subtle, which makes it compelling for those who don’t want to be distracted by notifications and all the hands-on features smartwatches bring to the table.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -215,8 +212,6 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -224,4 +219,26 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-embracing-high-dynamic-range-transforming-your-video-outputs/"><u>[New] Embracing High Dynamic Range Transforming Your Video Outputs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aster-the-art-of-immutable-image-creation/"><u>[New] Master the Art of Immutable Image Creation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-quick-and-free-method-to-spot-fibs-on-your-insta-circle-for-2024/"><u>[New] Quick & Free Method to Spot Fibs on Your Insta Circle for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-gamers-choice-best-4k-monitors/"><u>[New] Top Gamer's Choice Best 4K Monitors</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-revise-and-reshape-using-the-eraser-tool-in-photoshop-guide/"><u>[Updated] Revise & Reshape Using the Eraser Tool in Photoshop Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-guide-to-organizing-fb-giveaways/"><u>2024 Approved The Ultimate Guide to Organizing FB Giveaways</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-best-of-tech-in-the-oneplus-e-6t-top-notch-performance-meets-budget-friendliness/"><u>Discover the Best of Tech in the OnePlus E 6T: Top-Notch Performance Meets Budget Friendliness</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insight-on-xbox-one-elite-series-2-controller-a-historic-leader-in-gamepads/"><u>Expert Insight on Xbox One Elite Series 2 Controller: A Historic Leader in Gamepads</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hisense-40-h5590f-model-analysis-affordable-quality-in-a-smart-led-television/"><u>Hisense 40 H5590F Model Analysis: Affordable Quality in a SMART LED Television</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-overcome-initial-load-problems-with-deathloop/"><u>How to Overcome Initial Load Problems with Deathloop</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-xiaomi-redmi-k70-pro-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Xiaomi Redmi K70 Pro Phones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-yokus-island-express-a-unique-twist-on-classic-gaming/"><u>In-Depth Analysis of Yoku's Island Express - A Unique Twist on Classic Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leaders-take-on-the-pro-level-dreame-bot-l10-highly-efficient-cleaning-with-precision-lidar-navigation-unveiled/"><u>Leaders' Take on the Pro-Level Dreame Bot L10: Highly Efficient Cleaning with Precision LiDAR Navigation Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-tamriels-lore-and-quests-in-the-immersive-world-of-skyrim-a-detailed-review-for-switch-players/"><u>Mastering Tamriel's Lore & Quests in the Immersive World of Skyrim - A Detailed Review for Switch Players</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigate-your-day-with-books-by-your-side-experience-effortless-reading-with-kobo-clara-hd/"><u>Navigate Your Day With Books By Your Side - Experience Effortless Reading with Kobo Clara HD</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/quality-meets-play-in-the-samsung-q60r-series-the-ideal-4k-gamers-television-review/"><u>Quality Meets Play in the Samsung Q60R Series - The Ideal 4K Gamer's Television Review</u></a></li>
+<li><a href="https://techidaily.com/remove-google-frp-lock-on-yuva-2-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on Yuva 2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-2018-apple-ipad-pro-11-inch-a-buyers-best-pick/"><u>The Ultimate Guide to the 2018 Apple iPad Pro 11-Inch: A Buyer's Best Pick</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/what-to-do-when-your-android-isnt-receiving-sms-fixes-and-tips/"><u>What to Do When Your Android Isn't Receiving SMS: Fixes and Tips</u></a></li>
+</ul></div>
 
