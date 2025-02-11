@@ -1,7 +1,7 @@
 ---
 title: Travel in Style with the Lightweight and Portable TP-Link WR902AC Router
-date: 2025-01-24T20:53:11.094Z
-updated: 2025-01-30T07:53:42.391Z
+date: 2025-02-08T19:05:46.855Z
+updated: 2025-02-11T02:56:14.192Z
 categories:
   - BestProducts
 description: This Article Describes Travel in Style with the Lightweight and Portable TP-Link WR902AC Router
@@ -44,13 +44,13 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
 
 4.1
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/lCHc739SU7lyQkMIbG0aNWYsqy8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -75,6 +75,10 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A rugged brick of power contained within its own nice case**
 
  The unit and all its accessories are contained within a semi-hard case with a relatively durable zipper holding the two sides of the case together. One side contains the unit itself within a foam insert, and the other is an elastic mesh pouch for all the accessories. The idea here is that you can keep the case stashed in your trunk or under a seat and have everything you need.
@@ -85,6 +89,10 @@ thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/fi
 
  The accessory kit contains a wall charger and a 12V port charger for the unit, a DC cable, and a variety of ends to allow for charging a laptop. The jumper cables sprout from a module that plugs into a specific port on the unit and terminate in your standard clamps. The module itself has a status light that illuminates to indicate the unit’s readiness to jump start the car.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: The cables are short but easy to use**
 
  It's a breeze using the 600A to jump start a car. You plug the jumper cable module into the unit, which will cause its module light to flash green, then connect the red clamp to the positive terminal on your car’s battery and the black clamp to the negative terminal which will cause the module light to illuminate solid green. With our test vehicle it was a little difficult to get the clamps on the negative terminal as they are a little large, and the cables themselves are on the short side. With the clamps in position all that is left is to start the car and remove the clamps in reverse order.
@@ -93,10 +101,6 @@ It's a breeze using the 600A to jump start a car.
 
  If it’s other devices that need power, you simply need to turn the unit on and then plug them into the appropriate port. For a laptop, that means you must pick the correct adapter, use the power button to switch the unit to the right power mode for your laptop, and plug it into the DC power port. For a phone or other USB device you pretty much just need to pick one of the two ports and plug in, though the smart port provides better amperage and faster charging.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Immediate power to get you back on the road**
 
  When it comes to its ability to provide power, the DBPOWER Portable Jump Starter doesn’t disappoint. It reliably started a 2011 Hyundai Elantra that had a battery depleted down to 10V with zero issues, multiple times. With as small as it is, we did have some (thankfully unfounded) concerns that the unit might slide down into the engine bay as soon as the engine started.
@@ -104,6 +108,10 @@ It's a breeze using the 600A to jump start a car.
  Lifewire / Tony Mitera
 
  Charging USB devices is not only simple but fast as well, with a sustained 1,200 mAh current. This level of charging will top off your devices in a hurry, and with 18,000 mAh capacity the unit should be able to charge a phone like the Samsung Galaxy S10 five times over. Be aware that if your phone uses a USB-C or Thunderbolt connection you’ll need to provide your own cable.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: A decent flashlight and, oddly, a compass**
 
@@ -117,17 +125,9 @@ It packs a ton of value into its diminutive size.
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A low cost for such a feature-packed jump starter**
 
  You can find this model available online for between $70 and $75, and at that price point it packs a ton of value into its diminutive size. There are other units that are a little less expensive, but generally at the expense of some features or included accessories.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Splitting hairs on what features matter most to you**
 
@@ -144,7 +144,7 @@ It packs a ton of value into its diminutive size.
  It’s worth looking at other jump starters to see what they offer, but the DBPOWER 600A Peak 18000mAh Portable Car Jump Starter does everything that it's designed for quite well, is reliable and durable, and comes in a semi-hard case that you can easily stash in just about any vehicle.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -178,21 +178,24 @@ It packs a ton of value into its diminutive size.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-a-compreran-analysis-asus-proart-pa-329qs-innovations-in-4k-monitoring/"><u>[New] In 2024, A Compreran Analysis Asus ProArt PA 329Q’s Innovations in 4K Monitoring</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-mastery-in-managing-online-discussions-on-youtube/"><u>[New] Mastery in Managing Online Discussions on YouTube</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-snatching-twitter-laughter-3-pc-techniques/"><u>[New] Snatching Twitter Laughter 3 PC Techniques</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-uncovering-the-intricacies-of-lgs-top-tier-4k-display/"><u>[New] Uncovering the Intricacies of LG's Top-Tier 4K Display</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-high-performance-drone-gimbals/"><u>[Updated] High-Performance Drone Gimbals</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-honor-80-pro-straight-screen-edition-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/extollo-lansocket-1500-evaluation-speedy-performance-with-minimal-delay-and-built-in-power-feature/"><u>Extollo LANSocket 1500 Evaluation: Speedy Performance with Minimal Delay & Built-In Power Feature</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/fbx-recorder-alternatives-the-new-era-of-gaming-capture-for-2024/"><u>FBX Recorder Alternatives The New Era of Gaming Capture for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-effortlessly-chop-your-footage-into-sections-using-shotcut-the-comprehensive-walkthrough/"><u>How to Effortlessly Chop Your Footage Into Sections Using Shotcut - The Comprehensive Walkthrough</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-kobo-clara-color-ereader/"><u>In-Depth Evaluation of Kobo Clara Color eReader</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ipad-vs-kindle-vs-nook/"><u>IPad Vs. Kindle Vs. NOOK</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lamicall-s-tablet-holder-assessment-a-deep-dive-into-its-utility-and-elegance/"><u>Lamicall S Tablet Holder Assessment: A Deep Dive Into Its Utility and Elegance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-stars-of-literature-with-barnes-and-noble-nook-glowlight-3-an-insightful-review/"><u>Navigating the Stars of Literature with Barnes & Noble Nook GlowLight 3 – An Insightful Review</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/step-by-step-enhancing-photos-with-cropping-tools/"><u>Step-by-Step Enhancing Photos with Cropping Tools</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-epic-tale-retold-a-review-of-spyros-rekindled-saga-packed-with-unprecedented-worth/"><u>The Epic Tale Retold: A Review of Spyro's Rekindled Saga, Packed With Unprecedented Worth</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-new-nickwatch-premiering-at-the-kids-choice-awards/"><u>Unveiling New NickWatch: Premiering at the Kids' Choice Awards</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-sleek-line-up-best-7-fps-arenas/"><u>[New] Sleek Line-Up Best 7 FPS Arenas</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-leveraging-phone-capabilities-for-efficient-video-recording/"><u>[Updated] In 2024, Leveraging Phone Capabilities for Efficient Video Recording</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-video-marketing-strategies-integrating-logowatermark-for-brand-identity/"><u>[Updated] Video Marketing Strategies Integrating Logo/Watermark for Brand Identity</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-harnessing-metaverse-promotion-power/"><u>2024 Approved Harnessing Metaverse Promotion Power</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/benefits-of-multilingualism-post-40-a-cultural-and-cognitive-boost/"><u>Benefits of Multilingualism Post-40: A Cultural & Cognitive Boost</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-the-right-tablet-ipad-vs-kindle-vs-nook-comparison/"><u>Choosing the Right Tablet: IPad Vs. Kindle Vs. Nook Comparison</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-smart-speakers-google-nest-audio-versus-apples-homepod/"><u>Comparing Smart Speakers: Google Nest Audio Versus Apple's HomePod</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-huion-kamvas-gt-191-graphic-tablet-assessment-the-ultimate-pen-display-experience/"><u>Comprehensive Huion Kamvas GT-191 Graphic Tablet Assessment – The Ultimate Pen Display Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-genius-widecam-f100-examining-image-quality-and-audio-performance/"><u>Comprehensive Review of the Genius WideCam F100: Examining Image Quality & Audio Performance</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/discover-hidden-audio-makers-6-stealthy-iosandroid-tools-for-2024/"><u>Discover Hidden Audio Makers 6 Stealthy iOS/Android Tools for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-seamless-fusion-of-heritage-and-high-tech-in-our-skagen-falster-3-watch-evaluation/"><u>Discovering the Seamless Fusion of Heritage and High Tech in Our Skagen Falster 3 Watch Evaluation</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/easy-connection-instructions-for-printers-using-windows-10-operating-system/"><u>Easy Connection Instructions for Printers Using Windows 10 Operating System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-applecareplus-suitability-is-it-a-reliable-safety-net-for-your-tech-gear/"><u>Evaluating AppleCare+ Suitability: Is It a Reliable Safety Net for Your Tech Gear?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-dbpower-600-peak-charger-at-18000mah-a-reliable-portable-power-unit/"><u>Evaluating the DBPOWER 600 Peak Charger at 18,000mAh: A Reliable Portable Power Unit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-style-and-efficiency-of-the-swagtron-swagger-electric-scooter/"><u>Evaluating the Style and Efficiency of the Swagtron Swagger Electric Scooter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-how-does-apple-watch-series-6-stack-up-against-its-predecessors/"><u>Expert Review: How Does Apple Watch Series 6 Stack Up Against Its Predecessors?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-discovering-the-premier-6-microphones-for-streaming-professionals/"><u>In 2024, Discovering the Premier 6 Microphones for Streaming Professionals</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/secrets-to-affordable-access-buying-windows-11-codes/"><u>Secrets to Affordable Access: Buying Windows 11 Codes</u></a></li>
 </ul></div>
 

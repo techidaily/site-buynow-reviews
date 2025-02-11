@@ -1,7 +1,7 @@
 ---
 title: Top Review of the Amazon Basics HDTV Antenna for Cost-Effective Television Viewing
-date: 2024-10-23T16:16:09.628Z
-updated: 2024-10-30T16:33:47.594Z
+date: 2025-02-07T03:31:19.999Z
+updated: 2025-02-10T19:01:44.832Z
 categories:
   - BestProducts
 description: This Article Describes Top Review of the Amazon Basics HDTV Antenna for Cost-Effective Television Viewing
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/G6NVZKElOp84uFm7QUmSmpoSQ4s=/400x300/fi
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/rS-RQyeAxU8gdzYheTg1qi5PFEY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -67,6 +71,10 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -76,10 +84,7 @@ Lifewire / Erika Rawes
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup: Relatively easy**
@@ -93,6 +98,10 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
@@ -110,13 +119,6 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -126,16 +128,7 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -147,19 +140,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,19 +172,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-what-lies-beneath-an-exploration-into-youtubes-unlisted-video-space/"><u>[New] What Lies Beneath An Exploration Into YouTube's Unlisted Video Space</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-achieving-steady-motion-video-and-photography-insights/"><u>[Updated] 2024 Approved Achieving Steady Motion Video & Photography Insights</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-gamers-guide-to-best-4k-laptop-models-for-2024/"><u>[Updated] Gamer's Guide to Best 4K Laptop Models for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/deep-dive-into-bloodsport-an-immersive-gaming-experience-revealed/"><u>Deep Dive Into Bloodsport: An Immersive Gaming Experience Revealed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-5-best-travel-friendly-wi-fi-routers-of-this-year-2024-edition/"><u>Discover the 5 Best Travel-Friendly Wi-Fi Routers of This Year, 2024 Edition</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-whats-new-with-sony-at-the-anticipated-2024-state-of-play-presentation/"><u>Discover What’s New with Sony at the Anticipated 2024 State of Play Presentation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-excellence-with-the-samsung-galaxy-note-9-a-gargantuan-phone-experience/"><u>Discovering Excellence with the Samsung Galaxy Note 9 – A Gargantuan Phone Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-ultra-hd-quality-with-samsungs-55-ru7300-4k-smart-tv-comprehensive-review/"><u>Experience Ultra HD Quality with Samsung's 55 RU7300 4K Smart TV - Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-nintendo-switch-outshines-rivals-as-top-portable-game-system/"><u>Expert Evaluation: Nintendo Switch Outshines Rivals as Top Portable Game System</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-picks-leading-power-inverters-to-watch/"><u>Expert Picks: Leading Power Inverters to Watch</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Vivo Y200? | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/restoring-accuracy-fixed-discord-games-status-errors-windows/"><u>Restoring Accuracy: Fixed Discord Games Status Errors (Windows)</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/tips-and-tricks-enhancing-your-rpg-campaigns-using-ai-powered-assistant-chatgpt/"><u>Tips & Tricks: Enhancing Your RPG Campaigns Using AI-Powered Assistant, ChatGPT</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/trouble-with-nvidia-game-overlay-discover-simple-solutions-to-restore-its-functionality/"><u>Trouble with NVIDIA Game Overlay? Discover Simple Solutions to Restore Its Functionality</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-cubic-cottages-for-newcomers-to-mc-world/"><u>2024 Approved Cubic Cottages for Newcomers to MC World</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-facebook-in-flashes-sharing-briefly/"><u>2024 Approved Facebook in Flashes Sharing Briefly</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/guide-to-accessing-troubleshooting-mode-in-windows-8-and-81-without-hesitation/"><u>Guide to Accessing Troubleshooting Mode in Windows 8 & 8.1 Without Hesitation!</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-y17s-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo Y17s to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-top-quality-hdr-camera-brands-and-models/"><u>In 2024, Unveiling Top-Quality HDR Camera Brands and Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/motorola-mg7700-review-reliable-speed/"><u>Motorola MG7700 Review: Reliable Speed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/motorolas-affordable-gem-the-moto-g-stylus-phone-unveiled-in-our-thorough-examination/"><u>Motorola's Affordable Gem: The Moto G Stylus Phone Unveiled in Our Thorough Examination</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-2024s-best-wearable-fitness-gear-for-optimal-performance/"><u>Navigating Through 2024'S Best Wearable Fitness Gear for Optimal Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pros-and-cons-of-the-ps5-slim-versus-the-full-size-playstation-5/"><u>Pros and Cons of the PS5 Slim Versus the Full-Size PlayStation 5</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/restore-your-viewing-experience-reclaim-the-icon/"><u>Restore Your Viewing Experience - Reclaim the Icon</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-holy-stones-toy-racing-cars-perfect-for-kids-entertainment/"><u>Review of Holy Stone's Toy Racing Cars - Perfect for Kid’s Entertainment!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/should-i-prepare-my-mac-for-the-new-monterey-release/"><u>Should I Prepare My Mac for the New Monterey Release?</u></a></li>
+<li><a href="https://win11.techidaily.com/simplifying-unblocked-files-via-powershell-on-pc/"><u>Simplifying Unblocked Files via PowerShell on PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smartspeakerstobuy-the-ultimate-guide/"><u>SmartSpeakersToBuy: The Ultimate Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-arlo-video-doorbell-reviewed-a-dual-function-alarm-system-in-your-home/"><u>The Arlo Video Doorbell Reviewed - A Dual Function Alarm System in Your Home</u></a></li>
+<li><a href="https://win11.techidaily.com/unraveling-the-mysteries-of-bluescreenview-application/"><u>Unraveling the Mysteries of BlueScreenView Application</u></a></li>
+<li><a href="https://win-answers.techidaily.com/yakuza-amoored-pc-version-stability-improvements-and-patch-notes/"><u>Yakuza Amoored: PC Version Stability Improvements and Patch Notes</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
-date: 2025-01-26T01:30:48.419Z
-updated: 2025-01-29T17:52:45.517Z
+date: 2025-02-07T17:24:01.542Z
+updated: 2025-02-11T06:28:53.528Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini: The Wallet-Wise RC Helicopter You Can't Miss - Expert Review Inside"
@@ -45,9 +45,17 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -76,10 +84,6 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
  Overall, the C80 feels pretty sturdy. There are four antennas, and they don’t feel flimsy or easily breakable. The antennas are exceptionally long—disproportionately so when compared to the router’s body—but the length of the antennas is advantageous for performance. You can move the antennas 90 degrees up and down and roughly 180 degrees side to side, which lets you appropriately adjust them for placement on a wall or table. The Gigabit Ethernet ports (one WAN, four LAN) and power adapter port are located on the back of the device, which is ideal for placement on a flat surface, but not as great for mounting on a wall because the cables come out of the top of the router, and they’re difficult to hide or organize.
@@ -94,10 +98,6 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Network Performance: Fast speeds, No USB port**
@@ -108,21 +108,17 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -136,9 +132,17 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
@@ -149,10 +153,6 @@ Lifewire / Erika Rawes
 **Fast speeds and an exceptionally long range.**
 
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -189,24 +189,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-top-10-must-have-terraria-extensions-for-2024/"><u>[New] Top 10 Must-Have Terraria Extensions for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-navigating-macos-to-optimize-mixer-streams-for-2024/"><u>[Updated] Navigating MacOS to Optimize Mixer Streams for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/amd-shatters-records-the-epyc-prise-9755-epyc-cpu-surpasses-108000-in-multi-threading-performance-on-cpu-z/"><u>AMD Shatters Records: The Epyc Prise 9755 EPYC CPU Surpasses 108,000 in Multi-Threading Performance on CPU-Z</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/beat-surface-pros-erratic-display-expert-advice-on-resolving-flickers-and-quivers/"><u>Beat Surface Pro's Erratic Display: Expert Advice on Resolving Flickers and Quivers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-smart-doorbells-ring-vs-nest-which-one-wins/"><u>Comparing Smart Doorbells: Ring vs Nest – Which One Wins?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/cover-video-essentials-for-facebook-professionals-for-2024/"><u>Cover Video Essentials for Facebook Professionals for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/drive-your-passion-forward-exploring-auto-engineering-through-best-books-and-articles-on-vehicles-technologies-and-innovations-of-the-year-rev/"><u>Drive Your Passion Forward – Exploring Auto Engineering Through Best Books and Articles on Vehicles, Technologies & Innovations of the Year (Rev.)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/explore-the-features-of-the-latest-ampasand-andes-1500-gotech-mobile-battery-pack/"><u>Explore the Features of the Latest Ampasand Andes 1500 GoTech Mobile Battery Pack</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-trade-off-between-design-and-function-in-the-netgear-powerline-ac1200/"><u>Exploring the Trade-Off Between Design and Function in the Netgear Powerline AC1200</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/gpt-vs-huggingface-duel-who-wins/"><u>GPT Vs. Huggingface Duel: Who Wins?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hunt-the-greatest-bargains-on-samsung-tech-during-amazons-prime-day-extravaganza/"><u>Hunt the Greatest Bargains on Samsung Tech During Amazon's Prime Day Extravaganza</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-master-money-makers-the-best-of-the-top-ig-earners/"><u>In 2024, Master Money Makers The Best of the Top IG Earners</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-mohu-leafs-tv-signal-receiver-for-49/"><u>In-Depth Evaluation of the Mohu Leaf's TV Signal Receiver for $49</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/resolved-fixing-dxtc-and-dcom-server-errors-in-xbox-accessory-driver-for-windows-11-8-and-7/"><u>Resolved: Fixing DXTC and DCOM Server Errors in Xbox Accessory Driver for Windows 11, 8 & 7</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sharing-gameplay-joy-a-step-by-step-guide-to-gamersharing-on-xbox-one/"><u>Sharing Gameplay Joy: A Step-by-Step Guide to Gamersharing on Xbox One</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/stepping-up-your-game-understanding-mcns-and-their-impact-on-creators-for-2024/"><u>Stepping Up Your Game Understanding MCNs and Their Impact on Creators for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tech-meets-tradition-discover-how-the-skagen-falster-3-reimagines-classic-watches-in-a-digital-age/"><u>Tech Meets Tradition: Discover How the Skagen Falster 3 Reimagines Classic Watches in a Digital Age</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-all-in-one-entertainment-device-a-deep-dive-into-the-apple-ipad-air-2019/"><u>The All-in-One Entertainment Device: A Deep Dive Into the Apple iPad Air (2019)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-garmin-venu-smartwatch-tracking-health-and-exercise-round-the-clock/"><u>The Complete Guide to Garmin Venu Smartwatch: Tracking Health and Exercise Round the Clock</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-the-complete-process-of-logging-google-meet-chats/"><u>[New] In 2024, The Complete Process of Logging Google Meet Chats</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-the-art-of-transformation-in-tiktok-videos-via-background-shifts/"><u>[New] The Art of Transformation in TikTok Videos via Background Shifts</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-become-a-pip-expert-enhancing-visual-narratives-on-macos-sierra/"><u>2024 Approved Become a PIP Expert Enhancing Visual Narratives on macOS Sierra</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/accelerating-progress-in-self-driving-tech-with-groundbreaking-machine-learning-project-featured-on-zdnet/"><u>Accelerating Progress in Self-Driving Tech with Groundbreaking Machine Learning Project Featured on ZDNet</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-tecno-spark-10c-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Tecno Spark 10C to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/must-see-80s-movie-classics-of-the-decade/"><u>Must-See '80S Movie Classics of the Decade</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-your-literary-journey-an-in-depth-look-at-the-amazon-kindle-paperwhite-2019-release/"><u>Navigating Your Literary Journey: An In-Depth Look at the Amazon Kindle Paperwhite (2019 Release)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/simplicity-meets-entertainment-the-ultimate-guide-to-the-singing-machine-sml385btbk-karaoke-kit/"><u>Simplicity Meets Entertainment: The Ultimate Guide to the Singing Machine SML385BTBK Karaoke Kit</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/software-revamp-vs-patches-understanding-changes/"><u>Software Revamp Vs. Patches: Understanding Changes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-instructions-for-leveraging-preview-as-your-powerful-inbuilt-photo-editor-on-mac/"><u>Step-by-Step Instructions for Leveraging Preview as Your Powerful, Inbuilt Photo Editor on Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-breakdown-of-ergonomics-and-design-in-the-x-chair-x4-corporate-seating-solution/"><u>The Definitive Breakdown of Ergonomics and Design in the X-Chair X4 Corporate Seating Solution</u></a></li>
 </ul></div>
 

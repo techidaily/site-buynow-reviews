@@ -1,7 +1,7 @@
 ---
 title: Questionable Decisions in the WS623 Walkman Design
-date: 2025-01-25T20:14:42.686Z
-updated: 2025-01-30T01:47:37.803Z
+date: 2025-02-08T00:34:53.691Z
+updated: 2025-02-11T07:02:47.089Z
 categories:
   - BestProducts
 description: This Article Describes Questionable Decisions in the WS623 Walkman Design
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/-Cr0-SCaIqkQaWKOAtau13mGySQ=/400x300/fi
 ## Rexing V1 DashCam
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/uK2E64Wzmh1SC5wGVrVGSMMtQgk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -47,7 +43,7 @@ Lifewire / Danny Chadwick
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Rexing V1 DashCam
@@ -112,7 +108,7 @@ Lifewire / Danny Chadwick
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/df0_L-UzAk3OryqSCncsjfqi8QM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_03-2273fff3f71944368711b60f5da9687e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
@@ -125,10 +121,14 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Set it and forget it**
@@ -149,6 +149,10 @@ Lifewire / Danny Chadwick
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Competition: Z3 Plus vs. Rexing V1**
 
  If you’re wondering if you want to pay the extra $25 or so for the Z-Edge Z3 Plus dashcam (which retails for $125), the decision will come down to form factor and image quality—everything else is pretty much the same.
@@ -164,10 +168,6 @@ Lifewire / Danny Chadwick
  **It delivers on what it was designed to do, without any extras.**
 
  There isn’t much to complain about with the Rexing V1 DashCam. Its innovative form factor combined with a wide array of video capture features and decent picture quality means you won’t have any buyer’s remorse if you choose this dashcam.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,22 +198,22 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-understanding-cropping-settings-in-digital-editors/"><u>[Updated] 2024 Approved Understanding Cropping Settings in Digital Editors</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-captivate-and-enchant-explore-the-best-creative-reactions-on-yt-for-2024/"><u>[Updated] Captivate and Enchant Explore the Best Creative Reactions on YT for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-dj-beats-unleashed-high-fidelity-templates-downloaded-easily-for-2024/"><u>[Updated] DJ Beats Unleashed High-Fidelity Templates Downloaded Easily for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-enhance-visuals-with-better-obs-settings-for-2024/"><u>[Updated] Enhance Visuals with Better OBS Settings for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/apple-watch-series-7-discover-cost-estimates-sales-start-time-and-complete-device-specifications/"><u>Apple Watch Series 7 - Discover Cost Estimates, Sales Start Time, And Complete Device Specifications</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/benefits-and-drawbacks-of-using-pidgin-chat-application/"><u>Benefits & Drawbacks of Using Pidgin Chat Application</u></a></li>
-<li><a href="https://discover-able.techidaily.com/come-cambiare-il-tuo-disco-rigido-su-windows-10-evitando-la-riavvio-completo-del-sistema/"><u>Come Cambiare Il Tuo Disco Rigido Su Windows 10, Evitando La Riavvio Completo Del Sistema</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-exceptional-savings-for-electronics-at-the-2024-amazon-prime-day-sale/"><u>Discover Exceptional Savings for Electronics at the 2024 Amazon Prime Day Sale</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/evaluating-storage-limits-for-multi-channel-vids-128gb-for-2024/"><u>Evaluating Storage Limits for Multi-Channel Vids, 128GB for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-the-future-with-the-samsung-galaxy-s20-fe-5g-top-picks-and-insights-for-savvy-shoppers/"><u>Experience the Future with the Samsung Galaxy S20 FE 5G - Top Picks and Insights for Savvy Shoppers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/getting-started-with-your-new-arlo-smart-home-surveillance/"><u>Getting Started with Your New Arlo Smart Home Surveillance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-frequently-should-you-replace-tech/"><u>How Frequently Should You Replace Tech?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-your-poco-x5-lock-screen-password-by-drfone-android/"><u>How to Reset your Poco X5 Lock Screen Password</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranking-substitutes-for-microsoft-office/"><u>Top Ranking Substitutes for Microsoft Office</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranking-asus-wifi-router-models-in-2/"><u>Top-Ranking ASUS WiFi Router Models in 2</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/visionary-film-techniques-top-15-cine-look-ups-empowering-action-cam/"><u>Visionary Film Techniques Top 15 Cine Look-Ups Empowering Action Cam</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-budget-conscious-filmmakers-essential-video-gear-list-for-2024/"><u>[New] Budget-Conscious Filmmaker's Essential Video Gear List for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-unlocking-vlcs-full-potential-an-overview/"><u>[Updated] Unlocking VLC's Full Potential An Overview</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/discover-enhanced-wellness-tracking-opt-for-fitbit-sense-rather-than-apple-watch/"><u>Discover Enhanced Wellness Tracking: Opt for Fitbit Sense Rather than Apple Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/door-security-decision-makers-dilemma-comparing-the-pros-and-cons-of-ring-with-nest-systems/"><u>Door Security Decision-Makers' Dilemma: Comparing the Pros and Cons of Ring with Nest Systems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-system-the-ultimate-upgrade-checklist/"><u>Elevate Your System: The Ultimate Upgrade Checklist</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/embark-on-a-reading-adventure-amazons-kindle-unlimited-explained-with-its-four-key-benefits/"><u>Embark on a Reading Adventure - Amazon’s Kindle Unlimited Explained with Its Four Key Benefits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-of-google-pixel-6s-advanced-imaging-and-multimedia-functionality/"><u>Expert Evaluation of Google Pixel 6'S Advanced Imaging and Multimedia Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-reviews-choosing-the-ideal-extended-size-computer-mouse-pads-of-2eepy-the-ultimate-buyers-guide-to-mousing-bliss/"><u>Expert Reviews: Choosing the Ideal Extended-Size Computer Mouse Pads of 2Eepy - The Ultimate Buyer's Guide to Mousing Bliss</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-mobvoi-ticwatch-pro-3s-duo-displays-and-superior-gps-features-for-extended-wearability/"><u>Exploring the Mobvoi TicWatch Pro 3'S Duo Displays and Superior GPS Features for Extended Wearability</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-basic-to-powerhouse-win11-home-to-pro-guide/"><u>From Basic to Powerhouse: Win11 Home to Pro Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/getting-the-most-bang-for-your-buck-dive-into-our-oneplus-nord-n1-0-review/"><u>Getting The Most Bang For Your Buck? Dive Into Our OnePlus Nord N1 0 Review!</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/in-2024-how-to-convert-video-voice-to-text-online-for-free/"><u>In 2024, How To Convert Video Voice to Text Online for Free?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Methods to Change GPS Location On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/is-it-time-to-switch-from-iphone-14-pro-to-iphone-16-pro-a-comprehensive-comparison/"><u>Is It Time to Switch From iPhone 14 Pro to iPhone 16 Pro? A Comprehensive Comparison</u></a></li>
+<li><a href="https://win-net.techidaily.com/troubleshooting-and-solutions-for-opening-pdfs-on-windows-systems-insights-by-yl-software-professionals/"><u>Troubleshooting & Solutions for Opening PDFs on Windows Systems - Insights by YL Software Professionals</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-free-dailymotion-video-conversion-without-registration/"><u>Updated In 2024, Free Dailymotion Video Conversion without Registration</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Explore Petcube's Budget-Friendly HD Pet Monitor
-date: 2024-08-27T11:03:36.874Z
-updated: 2024-08-28T11:03:36.874Z
+date: 2025-02-05T02:50:34.987Z
+updated: 2025-02-10T16:57:39.820Z
 categories:
   - BestProducts
 description: This Article Describes Explore Petcube's Budget-Friendly HD Pet Monitor
@@ -13,15 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/cpsxnUZf4AzKkw4ZnMdTPrso0-M=/540x405/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/uk1o4WlK-bsMCk1tgtC5d79QMNM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -43,11 +41,12 @@ Lifewire / Jonno Hill
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
 
 Lifewire / Jonno Hill
@@ -84,6 +83,10 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Features & Functionality: Full suite manual control**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master has a lot of different options that will make it an attractive option for manual shooters. But before we dive into all the things it does well, let’s talk about what you_won’t_ find in this flash. The most notable omission is TTL. For the uninitiated, Through The Lens (TTL) is a metering mode that lets a flash unit fire a series of infrared bursts and evaluates the actual light coming through the lens to determine how much power to deliver when taking a photo. It’s very handy to have for beginners and event photographers, but by no means essential for many other types of users.
@@ -104,9 +107,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -128,8 +128,9 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
  Photographers just starting out (or with significantly less complicated lighting ambitions) might be better served by getting a dead-simple option like the Neewer TT560 Flash Speedlite. It’s a no-fuss option with very few extraneous controls that will be a good starting point for most users, and solid for pros who don’t want more than optical trigger functionality on a flash.
@@ -145,12 +146,9 @@ Lifewire / Jonno Hill
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
@@ -180,8 +178,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -189,4 +185,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-crafting-a-standout-solo-podcast-experience/"><u>[New] Crafting a Standout Solo Podcast Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ideo-voyages-venturing-into-the-vlog-profit-world/"><u>[New] Video Voyages Venturing Into the Vlog Profit World</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-combining-youtube-and-imovie-for-professional-results/"><u>[Updated] 2024 Approved Combining YouTube and iMovie for Professional Results</u></a></li>
+<li><a href="https://win-dash.techidaily.com/amd-radeon-hd-7870-driver-downloads-and-latest-update-information-for-windows-11/"><u>AMD Radeon HD 7870 Driver Downloads & Latest Update Information for Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/before-you-invest-in-a-used-ipad-here-are-5-important-considerations-to-know/"><u>Before You Invest in a Used iPad, Here Are 5 Important Considerations to Know</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/blades-blh41-120r-ready-to-fly-rc-helicopter-evaluated-for-outdoor-adventures/"><u>Blade's BLH41# 120R Ready-to-Fly RC Helicopter Evaluated for Outdoor Adventures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-garmin-venu-sq-analysis-elevate-your-daily-fitness-experience/"><u>Comprehensive Garmin Venu Sq Analysis: Elevate Your Daily Fitness Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/effortless-transformation-of-records-unveiling-the-at-lp120xusb-turntable/"><u>Effortless Transformation of Records: Unveiling the AT-LP120XUSB Turntable</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/family-fun-unleashed-with-the-holy-stone-cartoon-racer-an-expert-product-overview-and-insightful-reviews/"><u>Family Fun Unleashed with the Holy Stone Cartoon Racer: An Expert Product Overview and Insightful Reviews</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/from-capture-to-share-the-art-of-live-360-broadcasting-on-fb/"><u>From Capture to Share The Art of Live 360 Broadcasting on FB</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-youtubes-next-gen-streaming-made-easy-with-obs-tutorial/"><u>In 2024, Youtube's Next Gen Streaming Made Easy with OBS Tutorial</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-galactic-territories-an-experts-guide-to-playing-stellaris/"><u>Navigating Galactic Territories: An Expert's Guide to Playing Stellaris</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/preserving-gifs-from-twitter-for-mobile-devices/"><u>Preserving GIFs From Twitter for Mobile Devices</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-fix-dealing-with-freeze-frames-while-playing-fallout-4-on-desktop/"><u>Step-by-Step Fix: Dealing with Freeze Frames While Playing Fallout 4 on Desktop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-tutorial-on-capturing-screenshots-with-word-docs/"><u>Step-by-Step Tutorial on Capturing Screenshots with Word Docs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-excellence-comprehensive-evaluation-of-the-high-performance-samsung-galaxy-tab-s7plus/"><u>Unpacking Excellence: Comprehensive Evaluation of the High-Performance Samsung Galaxy Tab S^7+</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/44gz44gq44gr6auy6zplusz6loq44g477yb5yuv55s744ks5lia5ous5asj5oplusb44gz44kl56m25qw15pa55rov/"><u>すぐに高音質へ！動画を一括変換する究極方法</u></a></li>
+</ul></div>
 

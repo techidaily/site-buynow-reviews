@@ -1,7 +1,7 @@
 ---
 title: "Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
-date: 2025-01-25T21:15:23.459Z
-updated: 2025-01-29T23:20:53.773Z
+date: 2025-02-05T16:54:54.925Z
+updated: 2025-02-11T01:30:49.884Z
 categories:
   - BestProducts
 description: "This Article Describes Retro Meets New Age in Ratchet & Clank Review: An Iconic Journey Reimagined"
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/c0270bb78c702f180d69e641fb9f373f4cd07e8ef
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
  What We Like
@@ -41,9 +45,17 @@ Lifewire / Kelsey Simon
 
 3.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -66,10 +78,6 @@ Lifewire / Kelsey Simon
  _We purchased The Elder Scrolls V: Skyrim so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
 
  The Elder Scrolls V: Skyrim is an action role-playing game focused on single-player immersion in a fantasy world. It was originally released in 2011 and has most recently been ported over to the Switch. We took a close look at this game on its newest platform, playing it on the go to test the handheld gameplay experience, along with the plot and graphics.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Simple for all users**
 
@@ -97,11 +105,11 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Gameplay: Not as smooth as on other platforms**
 
@@ -121,6 +129,10 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Graphics: A bit outdated**
@@ -128,7 +140,7 @@ Lifewire / Kelsey Simon
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
@@ -151,15 +163,7 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
 
@@ -176,10 +180,6 @@ Lifewire / Kelsey Simon
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
 * [Mario Kart 8 Deluxe](https://www.lifewire.com/mario-kart-8-deluxe-review-4688951)
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -203,22 +203,22 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-free2x-webcam-recorder-software-review/"><u>[New] Free2X Webcam Recorder Software Review</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-uninterrupted-access-to-9-premium-christmas-films-enjoyment-at-zero-cost/"><u>[Updated] 2024 Approved Uninterrupted Access to 9 Premium Christmas Films Enjoyment at Zero Cost</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/asury-of-thought-provoking-youtube-content-for-2024/"><u>A Treasury of Thought-Provoking YouTube Content for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-travel-friendly-laptop-power-solutions-unveiled/"><u>Best Travel-Friendly Laptop Power Solutions Unveiled</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-apple-tv-4k-2021-model-assessment/"><u>Comprehensive Apple TV 4K 2021 Model Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/engage-in-immersive-gameplay-on-the-philips-evonia-49-high-definition-sweep-oled-screen/"><u>Engage in Immersive Gameplay on the Philips Evonia 49'' High Definition Sweep OLED Screen</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expanding-your-game-library-adding-new-titles-to-the-nes-classic-edition/"><u>Expanding Your Game Library: Adding New Titles to the NES Classic Edition</u></a></li>
-<li><a href="https://win-community.techidaily.com/experto-en-seguridad-como-borrar-adware-y-anuncios-pop-up-de-microsoft-windows-10/"><u>Experto en Seguridad: Cómo Borrar Adware Y Anuncios Pop-Up De Microsoft Windows 10</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-addictive-online-gaming-aspects-of-nhl-19/"><u>Exploring the Addictive Online Gaming Aspects of NHL 19</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Nokia G42 5G? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Oppo Find N3 Flip? | Dr.fone</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/step-by-step-guide-restoring-data-from-your-icloud-backup/"><u>Step-by-Step Guide: Restoring Data From Your iCloud Backup</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-tutorial-using-the-iso-ripper-software-for-effortless-dvd-iso-extraction-and-multi-format-file-conversion/"><u>Step-by-Step Tutorial: Using the ISO Ripper Software for Effortless DVD ISO Extraction and Multi-Format File Conversion</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-ultimate-guide-to-developing-powerful-proposal-skills-with-chatgpt-assistance/"><u>The Ultimate Guide to Developing Powerful Proposal Skills with ChatGPT Assistance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-ergonomic-vertical-mice-find-the-perfect-pick/"><u>Top-Rated Ergonomic Vertical Mice : Find the Perfect Pick</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-of-the-kobo-libra-h2o-the-revolutionary-waterproof-reading-experience/"><u>Unveiling the Secrets of the Kobo Libra H2O: The Revolutionary Waterproof Reading Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/xbox-one-game-sharing-made-easy-tips-and-tricks-for-playing-with-pals/"><u>Xbox One Game Sharing Made Easy - Tips and Tricks for Playing with Pals!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-instantaneous-darkness-creation/"><u>[New] 2024 Approved Instantaneous Darkness Creation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-hidden-guide-watching-highly-engaged-comments-with-ease-on-youtube/"><u>[Updated] The Hidden Guide Watching Highly Engaged Comments with Ease on YouTube</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-conquering-challenges-the-comprehensive-guide-to-google-podcasts/"><u>2024 Approved Conquering Challenges The Comprehensive Guide to Google Podcasts</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exhaustive-explanation-unveiling-the-google-podcasts-app/"><u>2024 Approved Exhaustive Explanation Unveiling the Google Podcasts App</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-low-cost-ssl-security-services/"><u>Comparing Low-Cost SSL Security Services</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dbpower-600a-the-ultimate-guide-to-its-dependable-jump-starting-and-18000mah-power-supply-capabilities/"><u>DBPOWER 600A - The Ultimate Guide to Its Dependable Jump Starting and 18,000mAh Power Supply Capabilities!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/determining-the-value-in-iphoneipod-battery-upgrades/"><u>Determining the Value in iPhone/iPod Battery Upgrades</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/digging-deep-into-the-world-of-w15a-frames/"><u>Digging Deep Into the World of W15A Frames</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-london-in-watch-dogs-an-exhaustive-review-of-the-legion-series-unique-environment-shift/"><u>Discovering London in Watch Dogs: An Exhaustive Review of the Legion Series' Unique Environment Shift</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dominating-the-rc-track-an-exhaustive-look-at-the-powerful-galaxy-ford-f-150-remote-control-leviathan/"><u>Dominating the R/C Track: An Exhaustive Look at the Powerful Galaxy Ford F-150 Remote Control Leviathan</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-selection-of-accessories-for-your-iphone-device/"><u>Elite Selection of Accessories for Your iPhone Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-legacy-performance-of-lg-watch-style-powered-by-wear-os-version-20/"><u>Evaluating the Legacy Performance of LG Watch Style Powered by Wear OS Version 2.0</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-poco-m6-pro-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Poco M6 Pro 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://article-files.techidaily.com/optimal-text-movement-collections/"><u>Optimal Text Movement Collections</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/protect-your-investment-essential-tips-to-prevent-costly-mistakes-with-apple-vision-pro-tech-insights/"><u>Protect Your Investment: Essential Tips to Prevent Costly Mistakes with Apple Vision Pro | Tech Insights.</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-ultimate-collection-of-film-scripts-by-genre/"><u>The Ultimate Collection of Film Scripts by Genre</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unveiling-image-quality-a-newbies-comprehensible-guide/"><u>Unveiling Image Quality A Newbie's Comprehensible Guide</u></a></li>
 </ul></div>
 

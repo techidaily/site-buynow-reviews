@@ -1,7 +1,7 @@
 ---
 title: Rapid WiFi with the TP-Link Archer C80 - A Detailed Look at a Sub-$100 Wireless Gem
-date: 2025-01-18T17:12:34.279Z
-updated: 2025-01-22T18:35:25.337Z
+date: 2025-02-04T20:09:47.666Z
+updated: 2025-02-10T16:16:47.398Z
 categories:
   - BestProducts
 description: This Article Describes Rapid WiFi with the TP-Link Archer C80 - A Detailed Look at a Sub-$100 Wireless Gem
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/hnfn1HKm08TJxpBixlaHeqOfiug=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
@@ -47,10 +47,6 @@ Lifewire / Erika Rawes
 [View On Amazon $199](https://www.amazon.com/dp/B07P3FGKYD?tag=lifewire-onsite-prod-20&ascsubtag=4942498%7Cn31dea18fa28a4d9a88e5e3a62470a49720%7CB07P3FGKYD) [View On Adorama.com $450](https://www.adorama.com/nerax120100n.html?utm%5Fsource=google&utm%5Fmedium=organic&utm%5Fcampaign=organicshopping&utm%5Fsource=adl-gbase-hometech) [View On B&H Photo Video $399](https://www.bhphotovideo.com/c/product/1469206-REG/netgear%5Frax120%5Fnighthawk%5Fax12%5F12%5Fstream%5Fwifi.html)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
@@ -91,7 +87,7 @@ Lifewire / Erika Rawes
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/fw0FJuD9bAOkQEHuAZ9OFq5toXk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_05-2a03227466354aad82fe55b884b76ac6-4d18f476974a44b081aafc943a8e56b1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -112,11 +108,11 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/y2V4Ncx3Z1ul8B-4lsc_IeiyCRQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_04-9e452ddedd2b4a46893fddd147c06d4f.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Network performance: Stellar**
 
@@ -143,7 +139,7 @@ Lifewire / Erika Rawes
  The router has two USB 3.0 storage ports on the back for connecting an external hard drive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Nighthawk App**
@@ -152,7 +148,15 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/MPwp1LtMC7Ua30t8VnJy7bjuqn4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_02-94fbae95ca5d4851a1cf40b197da4161.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Expensive**
 
@@ -167,10 +171,6 @@ Lifewire / Erika Rawes
  **A cool looking router that’s faster and more powerful than you probably need.**
 
  The Nighthawk RAX120 performs impressively, but it‘s costly and lacks some user-friendly features like strong parental controls and easy-to-manage antivirus, so it’ll be more desirable for those with heavier networking demands than the average user.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -210,17 +210,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-boost-youtube-video-performance-with-rapid-rendering-methods/"><u>[Updated] Boost YouTube Video Performance with Rapid Rendering Methods</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/altering-default-settings-to-use-a-different-app-for-music-files-tips-from-yl-computing/"><u>Altering Default Settings to Use a Different App for Music Files - Tips From YL Computing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-best-features-of-the-hp-chromebook-11-your-trusted-partner-in-learning-working-and-gaming/"><u>Discovering the Best Features of the HP Chromebook 11 - Your Trusted Partner in Learning, Working, and Gaming</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/high-performance-low-cost-dive-into-the-tp-link-archer-a9-router-for-less-than-a-hundred-bucks/"><u>High Performance, Low Cost: Dive Into the TP-Link Archer A9 Router for Less than a Hundred Bucks!</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-iphone-6-plus-without-a-passcode-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your iPhone 6 Plus Without a Passcode</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-about-motorola-moto-g84-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Motorola Moto G84 5G FRP Bypass</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Motorola Moto G23 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Itel P55 5G? | Dr.fone</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/mending-corrupted-mp4-files/"><u>Mending Corrupted MP4 Files</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/test-drive-the-future-of-convenience-with-maxoaks-185wh50000mah-charger-a-detailed-user-experience-report/"><u>Test Drive the Future of Convenience with MaxOak’s 185Wh/50,000mAh Charger – A Detailed User Experience Report</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-selection-of-top-5-best-android-photo-apps-for-2024/"><u>The Ultimate Selection of Top 5 Best Android Photo Apps for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-lenovo-ideapad-130s-balancing-portable-strength-and-user-experience/"><u>Unveiling the Lenovo IdeaPad 130S: Balancing Portable Strength and User Experience</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-maximize-video-potential-a-complete-guide-to-youtube-thumbnail-dimensions/"><u>[New] In 2024, Maximize Video Potential A Complete Guide to YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-missing-d3dx9-point-on-windows-11/"><u>Addressing Missing D3DX9 Point on Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-viber-out-functionality-a-detailed-performance-review/"><u>Exploring Viber Out Functionality: A Detailed Performance Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-classic-to-convertible-an-in-depth-look-at-the-lenovo-thinkpad-x1-titanium-yogas-appeal-to-die-hard-thinkpad-admirers/"><u>From Classic to Convertible: An In-Depth Look at the Lenovo ThinkPad X1 Titanium Yoga's Appeal to Die-Hard ThinkPad Admirers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/from-raw-footage-to-mov-windows-10-filming-techniques/"><u>From Raw Footage to MOV Windows 10 Filming Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-nest-audio-and-apple-homepod-face-off-an-in-depth-analysis/"><u>Google Nest Audio and Apple HomePod Face-Off: An In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-apples-latest-offering-shatters-expectations-a-comprehensive-review-of-their-best-value-10cu-display-ipad-now-in-its-eighth-generation/"><u>How Apple's Latest Offering Shatters Expectations: A Comprehensive Review of Their Best Value 10.cu Display iPad, Now in Its Eighth Generation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/imperator-rome-a-bold-journey-of-power-struggles-and-empire-foundations-revealed/"><u>Imperator: Rome - A Bold Journey of Power Struggles and Empire Foundations Revealed</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/improving-cyberpunk-2077s-gameplay-experience-fixed-frames-per-second-drop-problem/"><u>Improving Cyberpunk 2077'S Gameplay Experience: Fixed Frames Per Second Drop Problem</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-bringing-imagery-elements-into-harmony/"><u>In 2024, Bringing Imagery Elements Into Harmony</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-google-nest-audio-versus-apple-homepod-experience/"><u>In-Depth Review: Google Nest Audio Versus Apple HomePod Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-your-connection-with-tango-enjoy-cost-free-chat-voice-and-video-calling/"><u>Maximize Your Connection with Tango - Enjoy Cost-Free Chat, Voice & Video Calling</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/monster-hunter-world-deep-dive-taming-unique-and-deadly-monsters/"><u>Monster Hunter: World Deep Dive - Taming Unique and Deadly Monsters.</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-honor-100-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Honor 100 Black and White | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/swiftly-adapt-your-chatgpt-a-plugin-installation-guide/"><u>Swiftly Adapt Your ChatGPT: A Plugin Installation Guide</u></a></li>
+<li><a href="https://win-webster.techidaily.com/top-rated-wd-blue-sn550-disk-imaging-and-backup-tool/"><u>Top-Rated WD Blue SN550 Disk Imaging and Backup Tool</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-aukey-usb-hub-the-essential-stylish-toolkit-for-fast-data-transfer/"><u>Unveiling the Aukey USB Hub - The Essential, Stylish Toolkit for Fast Data Transfer</u></a></li>
 </ul></div>
 

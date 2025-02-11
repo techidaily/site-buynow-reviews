@@ -1,7 +1,7 @@
 ---
 title: "Critique of the OnePlus 8T: Exceptional Speed Overshadowed by Camera Issues"
-date: 2024-08-27T11:04:09.038Z
-updated: 2024-08-28T11:04:09.038Z
+date: 2025-02-08T05:06:49.172Z
+updated: 2025-02-10T23:31:57.230Z
 categories:
   - BestProducts
 description: "This Article Describes Critique of the OnePlus 8T: Exceptional Speed Overshadowed by Camera Issues"
@@ -19,10 +19,11 @@ Buying a new[smart TV](https://www.lifewire.com/what-is-a-smart-tv-4140172) does
 
 ## [Amazon](https://www.amazon.com/tvs/?tag=lifewire-onsite-prod-20&ascsubtag=4164092%7Cnbed2f9e3849f4c2b955e513b4727c27416%7C)
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Sony KD55X720E 55-Inch 4k Ultra HD Smart LED TV](https://www.lifewire.com/thmb/zL6fl10C4m2kTVhjqbd6DY7SSzQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SonyKD55X720E55-Inch4kUltraHDSmartLEDTV-5ae2296bfa6bcc0036833c06.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Courtesy of Amazon.com
 
@@ -31,14 +32,11 @@ Buying a new[smart TV](https://www.lifewire.com/what-is-a-smart-tv-4140172) does
  Moreover, Amazon offers helpful customer service and easy returns – most television orders will ship for free. When you're looking for a new TV at a great price and the convenience of shipment right to your door, don't overlook Amazon.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## [Walmart](https://www.walmart.com/cp/tv-video/1060825)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![SAMSUNG 65&#34; Class Curved 4K (2160P) Ultra HD Smart QLED HDR TV](https://www.lifewire.com/thmb/gtaur41ippil2WcpMY6V6mTIJNg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SAMSUNG65ClassCurved4K2160PUltraHDSmartQLEDHDRTV-5ae229a28e1b6e0037c6f2ed.jpeg)
 
  Courtesy of Walmart.com
@@ -47,12 +45,13 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Purchase new or score a great deal by browsing refurbished products. Walmart also offers value bundles that include popular accessories, making the buying process even more accessible. Plus, Walmart gives you a generous 90 days to return a television, and they accept returns in-store if you don’t want to deal with the hassle of shipping an item back.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## [Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Ftv-home-theater%2Ftvs%2Fabcat0101000.c%3Fid%3Dabcat0101000)
 
 ![Insignia™ - 55&#34; Class](https://www.lifewire.com/thmb/8pbyklpNAzakxsqz4XqjhuJNqNc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Insignia-55Class-5ae229eb0e23d900398f9d13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Courtesy of BestBuy.com
 
@@ -61,14 +60,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Need a new TV fast? On Best Buy’s website, you can sort by items that are available that day for in-store pickup. Many items ship free or have a price-match guarantee to help you get the best deal. Browse new or open-box products or even request help with installation from Best Buy’s tech team.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## [Overstock](https://www.overstock.com/Electronics/Televisions/2171/cat.html)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![LG 55-inch Class 4K UHD OLED with HDR OLED55C7P Smart TV](https://www.lifewire.com/thmb/8UoT2SJd7ztOHAWsHQiJvo3hPyo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG55-inchClass4KUHDOLEDwithHDROLED55C7PSmartTV-5ae22e06a18d9e00374a7135.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Courtesy of Overstock.com
 
@@ -76,9 +77,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Overstock has televisions as small as under 20 inches and as large as over 60 inches and offers a wide variety of television types and price options. While the selection can vary depending on what they have at the time you are looking, Overstock occasionally offers fabulous deals that would be hard to score anywhere else since they frequently offer coupons, sales, and other promotions.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## [Costco](https://www.costco.com/televisions.html)
 
 ![Samsung 75&#34; Class (74.5&#34; Diag.) 4K UHD LED LCD TV](https://www.lifewire.com/thmb/H_u0sXKIumdi6Wm-tyyBwUNSgnU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung75Class74.5Diag.4KUHDLEDLCDTV-5ae22cbd04d1cf003cd691b7.jpeg)
@@ -107,9 +105,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 [How to Buy a TV For Your Home in 2024](https://www.lifewire.com/things-to-consider-before-buying-a-tv-5226082)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## Visit a Brick and Mortar Store if You Can
 
  To help you decide before you buy, don't be afraid to do a bit of in-store shopping to see a potential buy in action; you can check out and compare the picture quality and hear the audio clarity for yourself as you browse the display models for each brand, giving you valuable information that may be difficult to find online.
@@ -118,7 +113,15 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![Ikea TV Stand Makeover](https://www.lifewire.com/thmb/4_13trq9nGaUcIe22YsnP8pPy_U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ikea-TV-Stand-Makeover-via-smallspaces.about.com-56a889403df78cf7729ea039.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Song Bird Blog via HomeTalk
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Brand Selection
 
@@ -131,17 +134,15 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Samsung Frame TV - TV Viewing Mode.  Image provided by Samsung
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Price Matching
 
  Have you ever bought something in-store or online, only to find the same thing at a different place for a better price? Many retailers have a price matching policy; if you find the same television model at one of their competitors for a better price, they'll match it to keep you as a loyal customer. To take advantage of this, you often need a copy of the sale ad or promotional price to show as proof, and the sale price usually has to be the most recent to claim a price match.
 
  Price matching can be a great way to save money and get a good deal on a new TV if store loyalty is essential to you. It's also great for customers who live in areas where there are only a few retailers; for example, if Walmart is the only big box store near you, but you've found an excellent TV sale price at Best Buy an hour away, you can take the sale ad to Walmart and still get a good deal. Not all stores offer this policy, so it's essential to ask an associate or customer service representative beforehand.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ![Wall Mounted TV and Media Console](https://www.lifewire.com/thmb/u4fTSa3rYLdZIC2otIcwcOHHurM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ikea-TV-Stand-Hack-DIY-via-smallspaces.about.jpg-56a889425f9b58b7d0f3249b.jpg)
 
 ## Home Delivery and Site-to-Store Shipping
@@ -191,8 +192,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +199,24 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-music-law-guide-for-instagram-users/"><u>[New] 2024 Approved The Music Law Guide for Instagram Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-building-effective-podcast-rss-feeds-for-2024/"><u>[New] Building Effective Podcast RSS Feeds for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-hourly-hitlist-the-leading-youtube-videos-by-watch-time-for-2024/"><u>[Updated] Hourly Hitlist The Leading YouTube Videos by Watch Time for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-your-need-to-connect-all-apps-through-facebook-login/"><u>Assessing Your Need to Connect All Apps Through Facebook Login</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/budget-friendly-finds-my-experience-with-the-affordable-surface-pro-11-insights-from-a-windows-guru/"><u>Budget-Friendly Finds: My Experience with the Affordable Surface Pro 11 - Insights From a Windows Guru</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-elegance-and-activity-tracking-with-the-garmin-vivomove-hr-our-in-depth-review/"><u>Experience Elegance & Activity Tracking with the Garmin Vivomove HR - Our In-Depth Review</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/from-setting-up-to-broadcasting-a-discoguide-for-2024/"><u>From Setting Up to Broadcasting A DiscoGuide for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-poco-c55-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Poco C55 Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-rating-the-impressive-features-of-sonys-49-ultra-hd-smart-tv-model-xbr49x900f/"><u>In-Depth Analysis and Rating: The Impressive Features of Sony's 49 Ultra HD Smart TV, Model XBR49X900F</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/limostudio-agg814-softbox-lighting-kit-review/"><u>LimoStudio AGG814 Softbox Lighting Kit Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/setting-phones-replacement-cadence/"><u>Setting Phones' Replacement Cadence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sleep-elegance-redefined-comprehensive-analysis-of-the-superior-philips-somneo-timepiece/"><u>Sleep Elegance Redefined: Comprehensive Analysis of the Superior Philips Somneo Timepiece</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-hidden-advantages-behind-amazon-prime-membership/"><u>The Hidden Advantages Behind Amazon Prime Membership</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-verdict-on-using-itop-for-screen-capture-in-2024/"><u>The Verdict on Using ITop for Screen Capture, In 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/ultimate-tutorial-how-to-install-latest-epson-wf-7620-driver-for-windows-computers/"><u>Ultimate Tutorial: How to Install Latest Epson WF-7620 Driver for Windows Computers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-genius-features-in-the-ring-video-doorbell-pro-review/"><u>Unpacking the Genius Features in the Ring Video Doorbell Pro Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-experience-analysis-google-maps-app-for-iphones/"><u>User Experience Analysis: Google Maps App for iPhones</u></a></li>
+</ul></div>
 

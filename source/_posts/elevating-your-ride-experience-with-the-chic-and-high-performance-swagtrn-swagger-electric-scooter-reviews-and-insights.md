@@ -1,7 +1,7 @@
 ---
 title: Elevating Your Ride Experience with the Chic & High-Performance Swagtrn Swagger Electric Scooter - Reviews and Insights
-date: 2025-01-29T05:16:10.587Z
-updated: 2025-01-29T17:28:42.992Z
+date: 2025-02-09T17:25:56.954Z
+updated: 2025-02-11T05:00:21.015Z
 categories:
   - BestProducts
 description: This Article Describes Elevating Your Ride Experience with the Chic & High-Performance Swagtrn Swagger Electric Scooter - Reviews and Insights
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/tgkMt2ozFD2OZz_tpBcZ3hFZKZY=/400x300/fi
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/5SQBxSHXey906sYtaz8fIiCXm7k=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -49,13 +45,13 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -76,10 +72,6 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Basic, but effective**
 
  The Archer C80 is an exceptionally small router, with a body that measures only 4.6 inches tall, 8.5 inches wide, and 1.26 inches in depth. Since its body is smaller than a paperback book, the router can sit inconspicuously on a table or desk. It also has two keyhole mounts on the back for mounting on a wall.
@@ -87,6 +79,10 @@ Lifewire / Erika Rawes
  The matte black color scheme allows it to blend in with other devices, so you’ll barely notice it on a desk or workstation. The surface is textured, with recesses to hide the venting. The texturing is both a blessing and a curse because it causes the C80 to collect a little extra dust, but it also hides fingerprints and smudges.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -112,10 +108,14 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
@@ -123,10 +123,6 @@ Lifewire / Erika Rawes
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -137,6 +133,10 @@ Lifewire / Erika Rawes
  If you want to control more advanced features, like NAT forwarding, DHCP servers, and IPv6, you’ll need to use the web management tool. The web management tool also provides more extensive parental control features, letting you filter out content by keywords (instead of just blocking websites). The web tool has a user-friendly interface, but it’s not as convenient as using the Tether app.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -189,20 +189,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-the-depths-of-video-talks-on-youtube-for-2024/"><u>[Updated] Exploring the Depths of Video Talks on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-from-panoramas-to-pages-uploading-wide-angle-content-online/"><u>2024 Approved From Panoramas to Pages Uploading Wide Angle Content Online</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-top-tricks-for-optimizing-windows-11/"><u>2024 Approved Top Tricks for Optimizing Windows 11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/crafting-sophistication-meets-convenience-a-comprehensive-look-at-the-michael-kors-mkgo/"><u>Crafting Sophistication Meets Convenience: A Comprehensive Look at the Michael Kors MKGO</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/download-the-latest-free-mov-codec-for-windows-10-installation-guide/"><u>Download the Latest Free Mov Codec for Windows 10 - Installation Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evolution-in-tech-analyzing-differences-between-samsungs-s23-ultra-and-s21-ultra/"><u>Evolution in Tech: Analyzing Differences Between Samsung's S23 Ultra and S21 Ultra</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-of-philips-somneo-premier-alarm-clock-assessment/"><u>Expert Evaluation of Philips Somneo: Premier Alarm Clock Assessment</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/explore-the-best-kept-facebook-meme-secrets/"><u>Explore The Best-Kept Facebook Meme Secrets</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-xiaomi-redmi-note-12-pro-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Xiaomi Redmi Note 12 Pro 5G Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-agrarian-aesthetics-stardew-clones-and-cousins/"><u>In 2024, Agrarian Aesthetics Stardew Clones and Cousins</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-honor-v-purse-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Honor V Purse Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-management-strategies-for-fetal-alcohol-syndrome/"><u>In 2024, Management Strategies for Fetal Alcohol Syndrome</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/practical-guide-utilizing-your-dell-monitor-top-tier-noise-canceling-headphones-and-exceptional-quality-webcam/"><u>Practical Guide: Utilizing Your Dell Monitor, Top-Tier Noise-Canceling Headphones & Exceptional Quality Webcam</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-troubled-journey-of-pixel-slate-through-a-messy-chromeos-landscape/"><u>The Troubled Journey of Pixel Slate Through a Messy ChromeOS Landscape</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/user-satisfaction-report-on-viber-out-voice-calls/"><u>User Satisfaction Report on Viber Out Voice Calls</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/plants-vs-zombies-battle-for-neighborville-a-hilarious-shooter-game-that-won-our-hearts/"><u>'Plants Vs. Zombies: Battle for Neighborville' - A Hilarious Shooter Game That Won Our Hearts!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-best-3d-model-suites-for-animation-artists/"><u>[New] Best 3D Model Suites for Animation Artists</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-screencast-creators-handbook-for-2024/"><u>[New] The Screencast Creator's Handbook for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-ultimate-webcam-users-guide-for-quality-recordings/"><u>[New] The Ultimate WebCam User's Guide for Quality Recordings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-top-tablets-and-e-readers-ipad-kindle-and-nook-face-off/"><u>Comparing Top Tablets and E-Readers: IPad, Kindle & Nook Face-Off</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-comparisons-of-echo-pop-vs-echo-dot-what-sets-them-apart/"><u>Essential Comparisons of Echo Pop vs Echo Dot: What Sets Them Apart?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-efficiency-and-consistency-of-sea-teche-external-usb-blu-ray-recorder-an-in-depth-product-review/"><u>Evaluating the Efficiency and Consistency of Sea Tech'e External USB Blu-Ray Recorder: An In-Depth Product Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hands-on-guide-to-the-functionality-of-nooks-9-inch-lenovo-slates/"><u>Hands-On Guide to the Functionality of Nook's 9-Inch Lenovo Slates</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-ipad-or-apple-iphone-7-stuck-on-activation-lock-by-drfone-ios/"><u>How to Fix iPad or Apple iPhone 7 Stuck On Activation Lock?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/human-creativity-versus-chatbots-in-the-content-arena/"><u>Human Creativity Versus Chatbots in the Content Arena</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-seeing-beyond-the-ordinary-with-ar/"><u>In 2024, Seeing Beyond the Ordinary with AR</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-spyro-remastered-series-a-small-creatures-great-gift/"><u>In-Depth Analysis of the Spyro Remastered Series: A Small Creature's Great Gift</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/interactive-design-best-practices-for-srgb-and-rgb/"><u>Interactive Design Best Practices for Srgb and Rgb</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/stream-rtlxl-content-to-your-devices-with-easy-vid-downloader-for-windows-and-macos/"><u>Stream RTLXL Content to Your Devices with Easy Vid Downloader for Windows and macOS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-choosing-an-alarm-clock-spotlight-on-philips-somneo/"><u>The Ultimate Guide to Choosing an Alarm Clock: Spotlight on Philips Somneo</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-netgear-orbi-mesh-wifi-system-ultimate-guide-and-reviews/"><u>Top Netgear Orbi Mesh WiFi System: Ultimate Guide & Reviews</u></a></li>
 </ul></div>
 

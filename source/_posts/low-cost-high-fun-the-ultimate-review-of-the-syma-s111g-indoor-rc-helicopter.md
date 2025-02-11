@@ -1,7 +1,7 @@
 ---
 title: "Low-Cost, High-Fun: The Ultimate Review of the Syma S111G Indoor RC Helicopter"
-date: 2024-10-27T16:08:02.712Z
-updated: 2024-10-30T16:45:42.503Z
+date: 2025-02-09T01:01:46.145Z
+updated: 2025-02-10T17:50:50.026Z
 categories:
   - BestProducts
 description: "This Article Describes Low-Cost, High-Fun: The Ultimate Review of the Syma S111G Indoor RC Helicopter"
@@ -69,7 +69,15 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Straight into the action**
 
@@ -78,10 +86,7 @@ Lifewire / Kelsey Simon
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -101,10 +106,7 @@ Harran is a whole different city at night.
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
@@ -121,14 +123,11 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Graphics: Attention to detail**
 
@@ -141,10 +140,7 @@ Harran is a whole different city at night.
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
@@ -162,13 +158,6 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -191,18 +180,17 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-riches-in-pixels-identifying-the-best-12-sites-with-free-stock-photos/"><u>[New] Riches in Pixels Identifying the Best 12 Sites with Free Stock Photos</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-hunters-choice-top-5-ultimate-shot-recording-gear/"><u>[Updated] Hunters' Choice Top 5 Ultimate Shot-Recording Gear</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-guide-to-vyncs-analytics-suite-trustworthy-features-met-with-convoluted-payment-plans/"><u>A Comprehensive Guide to Vyncs Analytics Suite: Trustworthy Features Met with Convoluted Payment Plans</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-new-era-of-high-def-in-depth-on-hps-z32-x-review-for-2024/"><u>A New Era of High-Def In Depth on HP’s Z32 X Review for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/comparing-generative-pre-trained-transformers-unveiling-the-distinctions-between-gpt-4-gpt-4-turbo-and-gpt-4o/"><u>Comparing Generative Pre-Trained Transformers: Unveiling the Distinctions Between GPT-4, GPT-4 Turbo & GPT-4o</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-the-pros-and-cons-of-genius-widecam-model-f100-featuring-pixel-distortion-and-acoustic-problems/"><u>Comprehensive Review: The Pros and Cons of Genius WideCam Model F100, Featuring Pixel Distortion & Acoustic Problems</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-create-amazing-facebook-cover-pictures-for-your-timeline/"><u>How to Create Amazing Facebook Cover Pictures for Your Timeline</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-samsung-galaxy-f34-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Samsung Galaxy F34 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-can-i-share-videos-on-facebook/"><u>In 2024, Can I Share Videos on Facebook?</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/logitech-gaming-mouse-g602-setup-and-drivers-free-downloads-for-windows-users/"><u>Logitech Gaming Mouse (G602) Setup & Drivers: Free Downloads for Windows Users</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-face-off-determining-if-outlook-or-gmail-serves-you-best/"><u>The Ultimate Face-Off: Determining if Outlook or Gmail Serves You Best</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-in-depth-analysis-of-kobo-clara-colour-ebook-reader/"><u>Ultimate Guide: In-Depth Analysis of Kobo Clarа Colоur eBook Reader</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-of-the-logitech-c615-superior-quality-without-breaking-the-bank/"><u>Unveiling the Secrets of the Logitech C615: Superior Quality without Breaking the Bank</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-high-def-gaming-gpu-recommendations/"><u>2024 Approved High-Def Gaming GPU Recommendations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ar-5-arcshell-augmented-reality-glasses-exceptional-value-and-quality/"><u>AR-5 ArcShell Augmented Reality Glasses: Exceptional Value and Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-kindle-devices-to-fire-tablets-what-sets-them-apart/"><u>Comparing Kindle Devices to Fire Tablets: What Sets Them Apart?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-marvels-spider-man-the-impactful-journey-of-miles-morales/"><u>Comprehensive Review of Marvel's Spider-Man: The Impactful Journey of Miles Morales</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/convert-video-output-format-a-comprehensive-guide-to-transforming-vob-files-into-mp4-on-pc-and-mac/"><u>Convert Video Output Format: A Comprehensive Guide to Transforming VOB Files Into MP4 on PC and Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cubefit-terramat-assessment-revolutionize-your-productivity-and-fitness/"><u>CubeFit TerraMat Assessment: Revolutionize Your Productivity and Fitness</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-why-the-apple-iphone-12-is-a-game-changer/"><u>Expert Analysis: Why the Apple iPhone 12 Is a Game-Changer</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-you-when-your-oppo-reno-11-pro-5g-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Oppo Reno 11 Pro 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-oppo-a2-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Oppo A2 to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/movavi-ppm-jpg-gif/"><u>Movavi 제공 - PPM에서 JPG 또는 GIF로 바뀌기, 무료로 인터넷 상호 작용: 오픈소스를 위한 보조 도구</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshooting-invalidated-hardware-drivers-on-your-pc-or-mac/"><u>Troubleshooting Invalidated Hardware Drivers on Your PC or Mac</u></a></li>
+<li><a href="https://win-premium.techidaily.com/1728474913212-windows-11/"><u>Windows 11起動設定ファイルの紛失に対する回避方法</u></a></li>
 </ul></div>
 

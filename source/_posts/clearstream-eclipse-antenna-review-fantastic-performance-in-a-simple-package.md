@@ -1,7 +1,7 @@
 ---
 title: "ClearStream Eclipse Antenna Review: Fantastic Performance In A Simple Package"
-date: 2025-01-19T18:40:52.229Z
-updated: 2025-01-22T17:27:56.031Z
+date: 2025-02-04T00:12:27.788Z
+updated: 2025-02-11T01:48:17.628Z
 categories:
   - BestProducts
 description: "This Article Describes ClearStream Eclipse Antenna Review: Fantastic Performance In A Simple Package"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/e7b4c7d026fb9a820758c805a32df2a4b6a1efba9
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Clearstream ECLIPSE
 
@@ -72,19 +68,19 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
 
@@ -94,9 +90,17 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
 
@@ -104,19 +108,15 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -155,22 +155,17 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-entryway-investments-cost-effective-channels-for-newbies/"><u>[New] 2024 Approved Entryway Investments Cost-Effective Channels for Newbies</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-navigating-the-world-of-sound-symbols-on-instagram-platform/"><u>[New] In 2024, Navigating the World of Sound Symbols on Instagram Platform</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-resolve-instagrams-video-problems-swiftly-for-2024/"><u>[New] Resolve Instagram's Video Problems Swiftly for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2023s-leading-under-desk-walking-machines-a-comprehensive-guide/"><u>2023'S Leading Under-Desk Walking Machines: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2023s-most-popular-apple-watches-ranked-find-the-perfect-fit/"><u>2023'S Most Popular Apple Watches Ranked: Find the Perfect Fit!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/2024s-leading-tripod-head-reviews-find-the-perfect-match-for-your-photography-gear/"><u>2024'S Leading Tripod Head Reviews: Find the Perfect Match for Your Photography Gear</u></a></li>
-<li><a href="https://article-helps.techidaily.com/a-drones-leap-into-clarity-q500-reviewed/"><u>A Drone's Leap Into Clarity - Q500 Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cost-effective-chrome-os-laptops-a-comprehensive-guide/"><u>Cost-Effective Chrome OS Laptops: A Comprehensive Guide</u></a></li>
-<li><a href="https://win-trending.techidaily.com/discover-and-activate-dark-mode-in-microsofts-latest-bing-chat-update-digital-trends-spotlight/"><u>Discover and Activate Dark Mode in Microsoft's Latest Bing Chat Update | Digital Trends Spotlight</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-leading-sleep-tracker-gadgets-for-optimal-rest/"><u>Discover the Leading Sleep Tracker Gadgets for Optimal Rest</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/effortless-email-alteration-on-proton-vpn-and-exposing-can-you-trust-the-windows-chatgpt-app/"><u>Effortless Email Alteration on Proton VPN & Exposing: Can You Trust the Windows ChatGPT App?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elite-selection-premium-ring-lights-dominating-the-market/"><u>Elite Selection: Premium Ring Lights Dominating the Market</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/essential-enhancements-and-gadgets-for-the-oculus-quest-2-2023-edition/"><u>Essential Enhancements & Gadgets for the Oculus Quest 2 - 2023 Edition</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/headquarters-of-virtual-reality-entertainment-for-2024/"><u>Headquarters of Virtual Reality Entertainment for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-fix-the-error-of-absent-or-outdated-widevine-cdm-in-windows/"><u>How to Fix the Error of Absent or Outdated Widevine CDM in Windows</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tips-and-tricks-to-tell-if-your-apple-iphone-6s-plus-is-unlocked-by-drfone-ios/"><u>Tips And Tricks To Tell if Your Apple iPhone 6s Plus Is Unlocked</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-premiere-selection-of-2023s-finest-qled-screens/"><u>Unveiling the Premiere Selection of 2023'S Finest QLED Screens</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-inversion-workshop/"><u>[Updated] 2024 Approved Inversion Workshop</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-childhood-wings-5-best-drone-companions-for-2024/"><u>[Updated] Childhood Wings 5 Best Drone Companions for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-the-ultimate-guide-to-online-video-preservation/"><u>[Updated] In 2024, The Ultimate Guide to Online Video Preservation</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-the-zoom-tool-on-snapchat-for-better-photos-and-videos/"><u>In 2024, Mastering the Zoom Tool on Snapchat for Better Photos & Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/lock-and-load-effortless-profile-url-addition-on-tiktok-for-2024/"><u>Lock-and-Load Effortless Profile URL Addition on TikTok for 2024</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/microsofts-latest-security-scare-should-you-chuckle-or-cry-insights-from-zdnet/"><u>Microsoft's Latest Security Scare: Should You Chuckle or Cry? Insights From ZDNet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-email-services-a-comprehensive-review-of-outlookcom-and-gmail/"><u>Navigating Email Services: A Comprehensive Review of Outlook.com and Gmail</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/reversal-strategies-moving-from-latest-sierra-to-el-capitan-for-2024/"><u>Reversal Strategies Moving From Latest Sierra to El Capitan for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionary-elegance-discovering-how-samsung-galaxy-watch3-marries-classic-appeal-with-modern-innovations/"><u>Revolutionary Elegance: Discovering How Samsung Galaxy Watch3 Marries Classic Appeal with Modern Innovations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rexing-v1-dashcam-reviewed-hidden-camera-with-solid-performance-at-a-great-price/"><u>Rexing V1 DashCam Reviewed: Hidden Camera with Solid Performance at a Great Price</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/settling-into-a-virtual-firepit-a-comprehensive-evaluation-of-the-minecraft-campfire-tales-edition/"><u>Settling Into a Virtual Firepit: A Comprehensive Evaluation of the Minecraft Campfire Tales Edition</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-vivo-x90s-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Vivo X90S Location | Dr.fone</u></a></li>
 </ul></div>
 

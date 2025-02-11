@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis on the Budget Champion: TP-Link Archer C80 Below $100 Wireless Review"
-date: 2025-01-18T17:08:05.109Z
-updated: 2025-01-22T18:09:28.208Z
+date: 2025-02-08T04:36:04.376Z
+updated: 2025-02-10T20:02:07.913Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis on the Budget Champion: TP-Link Archer C80 Below $100 Wireless Review"
@@ -45,13 +45,13 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -96,6 +96,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Network Performance: Fast speeds, No USB port**
 
  Although this is a low to mid-tier level device, I was quite impressed with its speed and performance. I live in a suburb about 20 minutes away from Raleigh, NC, and I have Spectrum as my internet service provider. The Wi-Fi speeds in my home max out at 400 Mbps. I have a smart box that sits in a utility closet where the router connects. I mounted the router on the wall in that closet, which has a solid door that acts as an immediate signal obstruction. In spite of the presence of this solid door, I was still able to get between 340 and 350 Mbps all throughout the entire downstairs (on the 5GHz band). On the 2.4GHz band, I could get up to 90Mbps all throughout the first floor and in my garage.
@@ -105,14 +109,10 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
@@ -130,19 +130,15 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
@@ -153,6 +149,10 @@ Lifewire / Erika Rawes
 **Fast speeds and an exceptionally long range.**
 
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -189,24 +189,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ailing-your-online-visibility-with-optimal-youtube-thumbnail-dimensions/"><u>[New] Nailing Your Online Visibility with Optimal YouTube Thumbnail Dimensions</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupted-video-files-of-play-7t-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupted video files of Play 7T</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/blu-ray-vs-streaming-making-the-right-choice-for-your-home-entertainment/"><u>Blu-Ray Vs. Streaming: Making the Right Choice for Your Home Entertainment</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oneplus-12r-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast OnePlus 12R Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-revisiting-old-memories-how-to-upload-them-on-snapchat/"><u>In 2024, Revisiting Old Memories How to Upload Them on Snapchat</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-m14-4g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy M14 4G Phone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/premier-top-8-4k-blu-ray-playback-machines/"><u>Premier Top 8 4K Blu-Ray Playback Machines</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/premier-virtual-tts-services-a-comprehensive-list-of-online-resources-for-2024/"><u>Premier Virtual TTS Services A Comprehensive List of Online Resources for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transform-your-listening-on-youtube-music-by-implementing-these-easy-adjustments/"><u>Transform Your Listening on YouTube Music by Implementing These Easy Adjustments</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transforming-from-lone-explorer-to-team-player-how-multiplayer-shaped-my-game-experience/"><u>Transforming From Lone Explorer to Team Player: How Multiplayer Shaped My Game Experience</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/transforming-in-game-audio-identity-for-a-unique-competitive-advantage-no-charge/"><u>Transforming In-Game Audio Identity for a Unique Competitive Advantage (No Charge!)</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/turn-up-the-scene-speed-on-your-iphone-filming-and-slowing-down-methods-for-2024/"><u>Turn Up the Scene Speed on Your iPhone Filming & Slowing Down Methods for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-watching-netflix-live-through-discord/"><u>Ultimate Guide: Watching Netflix Live Through Discord</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/upcoming-end-date-xbox-360-content-library-discontinues-service-for-the-month/"><u>Upcoming End Date: Xbox 360 Content Library Discontinues Service for the Month</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/watching-music-unfold-spotifys-latest-addition-of-official-song-videos/"><u>Watching Music Unfold: Spotify's Latest Addition of Official Song Videos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/weekly-update-changes-coming-to-netflixs-basic-plan-and-enhanced-techniques-in-iphone-restoration/"><u>Weekly Update: Changes Coming to Netflix's Basic Plan & Enhanced Techniques in iPhone Restoration</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-you-need-to-hit-the-pause-button-on-apple-music-listening-records-for-better-security/"><u>Why You Need to Hit the Pause Button on Apple Music Listening Records for Better Security</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/wiring-up-your-xbox-gaming-pad-for-use-on-windows-or-mac-desktops-and-laptops/"><u>Wiring Up Your Xbox Gaming Pad for Use on Windows or Mac Desktops and Laptops</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/youtube-music-introduces-new-ai-powered-station-functionality-similar-to-spotifys-smart-playlists/"><u>YouTube Music Introduces New AI-Powered Station Functionality, Similar to Spotify's Smart Playlists</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-enhance-film-magic-with-final-cuts-top-10-effect-tools/"><u>[New] 2024 Approved Enhance Film Magic with Final Cut's Top 10 Effect Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-gopro-hero4-vs-gopro-hero5-showdown/"><u>[New] GoPro Hero4 vs GoPro Hero5 Showdown</u></a></li>
+<li><a href="https://video-capture.techidaily.com/mastering-multimedia-conversions-transform-video-and-audio-files-with-these-techniques/"><u>Mastering Multimedia Conversions: Transform Video & Audio Files with These Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/motorola-one-vs-iphone-a-budget-friendly-alternative-that-matches-the-look/"><u>Motorola One Vs. IPhone: A Budget-Friendly Alternative That Matches the Look</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/petcube-picks-the-best-economical-hd-pet-monitoring-gear/"><u>Petcube Picks the Best Economical HD Pet Monitoring Gear</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/premier-9-high-quality-online-mic-capture-solutions-23-for-2024/"><u>Premier 9 High-Quality Online Mic Capture Solutions ('23) for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-breakdown-the-oneplus-9-falls-short-on-promises-and-figures/"><u>Review Breakdown: The OnePlus 9 Falls Short on Promises and Figures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-intuitive-and-affordable-z-edge-z3plus-dashboard-camera/"><u>Review of the Intuitive and Affordable Z-Edge Z3+ Dashboard Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-your-living-space-the-all-new-gen-4-echo-unboxed-and-explored/"><u>Revolutionizing Your Living Space: The All-New Gen 4 Echo Unboxed and Explored</u></a></li>
+<li><a href="https://some-tips.techidaily.com/solving-the-hassles-of-portable-charging-how-a-simple-20-anker-battery-made-all-the-difference-zdnets-review/"><u>Solving the Hassles of Portable Charging: How a Simple $20 Anker Battery Made All the Difference - ZDNet's Review</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/speedy-social-stardom-likes-plus-videos-on-instagram-guide/"><u>Speedy Social Stardom Likes + Videos on Instagram Guide</u></a></li>
+<li><a href="https://win-superb.techidaily.com/wie-man-unter-windows-11-bis-windows-7-heic-bilder-ohne-probleme-offnet/"><u>Wie Man Unter Windows 11 Bis Windows 7 HEIC Bilder Ohne Probleme Öffnet</u></a></li>
 </ul></div>
 

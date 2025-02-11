@@ -1,7 +1,7 @@
 ---
 title: Introductory Lighting Kit for Amateur Studios
-date: 2025-01-29T07:21:00.054Z
-updated: 2025-01-30T04:12:35.257Z
+date: 2025-02-08T01:36:05.438Z
+updated: 2025-02-11T06:12:11.662Z
 categories:
   - BestProducts
 description: This Article Describes Introductory Lighting Kit for Amateur Studios
@@ -18,13 +18,13 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -75,10 +75,6 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -90,7 +86,7 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: It can’t realistically be much simpler**
@@ -109,10 +105,6 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
  There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
@@ -122,7 +114,7 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: A ton of value for a tiny cost**
@@ -130,6 +122,10 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -146,6 +142,10 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -178,22 +178,15 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-nvidia-screen-recorder-record-games-with-ease-for-2024/"><u>[New] NVIDIA Screen Recorder - Record Games with Ease for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-expert-methods-for-flipping-image-colors/"><u>[Updated] 2024 Approved Expert Methods for Flipping Image Colors</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-live-video-quest-evaluating-the-strengths-of-obs-and-twitch-studio/"><u>[Updated] 2024 Approved Live Video Quest Evaluating the Strengths of OBS and Twitch Studio</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unleash-youtube-dominance-a-comprehensive-guide-to-studio-success/"><u>[Updated] Unleash YouTube Dominance A Comprehensive Guide to Studio Success</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/bose-qc35-ii-showcase-audiophiles-silence-seeker/"><u>Bose QC35 II Showcase: Audiophile's Silence Seeker</u></a></li>
-<li><a href="https://win-blog.techidaily.com/bring-back-the-boom-solutions-for-noise-problems-in-fallout-4-pc-games/"><u>Bring Back the Boom: Solutions for Noise Problems in Fallout 4 PC Games</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elite-selection-of-gym-trackers-and-wearables/"><u>Elite Selection of Gym Trackers and Wearables</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/examining-the-essence-of-w15a-photo-frames/"><u>Examining the Essence of W15A Photo Frames</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-finest-big-screen-laptops-of-2024-17-inches/"><u>Expert Review: The Finest Big-Screen Laptops of 2024 (17 Inches)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-review-unveiling-the-intelligent-capabilities-of-the-linksys-ea9500-router/"><u>Expert Review: Unveiling the Intelligent Capabilities of the Linksys EA9500 Router</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/1719818350627-geforce-1060-get-new-nvidia-drivers-now/"><u>GeForce 1060: Get New Nvidia Drivers Now!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-craft-professional-episodes-a-comprehensive-guide-to-editing-in-garageband/"><u>In 2024, Craft Professional Episodes A Comprehensive Guide to Editing in GarageBand</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-the-tp-link-av1300-wireless-range-extender-living-up-to-expectations-an-in-depth-review/"><u>Is the TP-Link AV1300 Wireless Range Extender Living Up to Expectations? An In-Depth Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-voice-recognition-tools-reviewed/"><u>Leading Voice Recognition Tools Reviewed</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-the-basics-of-at-home-electric-car-power-up/"><u>Mastering the Basics of At-Home Electric Car Power Up</u></a></li>
-<li><a href="https://app-tips.techidaily.com/protonmail-unveils-new-secure-password-management-tool-featuring-military-grade-encryption/"><u>ProtonMail Unveils New Secure Password Management Tool Featuring Military-Grade Encryption</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-of-premium-usb-wi-fi-controllers-for-the-year-2024/"><u>Ultimate Selection of Premium USB Wi-Fi Controllers for the Year 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-best-hd-action-recorders-under-100-for-2024/"><u>[New] Best HD Action Recorders Under $100 for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlocking-youtubes-hidden-gems-keyword-research/"><u>[Updated] In 2024, Unlocking YouTube's Hidden Gems Keyword Research</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cultivating-inquisitive-interview-habits-for-2024/"><u>Cultivating Inquisitive Interview Habits for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-lenovo-tab-4s-advantages-and-limitations-an-android-perspective/"><u>Navigating Through Lenovo Tab 4’S Advantages & Limitations: An Android Perspective</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-s-most-popular-free-video-fx-apps-for-iphone-and-android/"><u>New S Most Popular Free Video FX Apps for iPhone and Android</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-productivity-a-deep-dive-into-the-new-ipad-air-ipados-102-inch-tablet/"><u>Revolutionizing Productivity: A Deep Dive Into the New iPad Air (iPadOS) 10.2-Inch Tablet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/snapshot-wonder-canons-compact-sx530-reviewed/"><u>Snapshot Wonder: Canon's Compact SX530 Reviewed</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/step-by-step-guide-effortlessly-removing-white-backgrounds-in-your-photos/"><u>Step-by-Step Guide: Effortlessly Removing White Backgrounds in Your Photos</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/streamline-content-production-with-chatgpt-9-practical-ways-to-elevate-your-craft/"><u>Streamline Content Production with ChatGPT: 9 Practical Ways to Elevate Your Craft</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/swagtrons-agile-innovation-or-just-costly-a-detailed-review-of-the-swagboard-t1/"><u>Swagtron's Agile Innovation or Just Costly? A Detailed Review of the Swagboard T1</u></a></li>
 </ul></div>
 

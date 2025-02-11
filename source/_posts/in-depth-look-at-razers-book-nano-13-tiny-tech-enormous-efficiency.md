@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look at Razer's Book Nano 13: Tiny Tech, Enormous Efficiency"
-date: 2025-01-28T20:35:22.245Z
-updated: 2025-01-30T04:26:39.673Z
+date: 2025-02-10T05:14:44.190Z
+updated: 2025-02-11T03:18:08.427Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look at Razer's Book Nano 13: Tiny Tech, Enormous Efficiency"
@@ -18,12 +18,16 @@ thumbnail: https://thmb.techidaily.com/f567dab373423469fdd9df8f70e7990588879bfed
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## AmazonBasics 7 Port USB 3.0
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/61zrtwf2XnDfg9oA0igeVIB2E3M=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -74,6 +78,10 @@ Lifewire / Jonno Hill
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/wXgyw4YH3MYx3AO1YEPSdvla-IQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_02-d9ec8728693e42e9b7ca7d3108d37ba6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Design: A clean look, with some awkward ports**
@@ -89,6 +97,10 @@ Lifewire / Jonno Hill
  There were two quality control mishaps on the particular unit we tested. First, the internal ports were somewhat misaligned with the outer casing, making it difficult to plug in some devices. Second, the labels that should be printed around the ports didn’t make it onto this particular unit, despite all the product page images showing this feature. Not a huge deal, but also not a ringing endorsement for the device’s quality.
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/-6zArDEXr2_gqDvtkeqZAbTQKiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_05-c3e5d946a7e84b6cb1b395cff1103e42.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -107,7 +119,7 @@ Lifewire / Jonno Hill
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/Ep4bZmgChjDyFofASwezrrPrDYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_04-e00baf7ec07a4762bf437cde18e2b4de.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -118,25 +130,13 @@ Lifewire / Jonno Hill
 
  The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: You get what you pay for**
 
  At a list price of $33.44, the AmazonBasics 7 Port USB 3.0 Hub isn’t a terrible deal, but given the materials used and the quality control issues, it’s definitely not an amazing deal. Buyers looking for a bit more might consider AUKEY’s 10-port powered hub or Amazon’s own AmazonBasics 10 Ports USB 3.0 Charging Hub Docking Station. Both these hubs offer more connections and dedicated power.
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/AnTpc7CmLFfbEILGIFkFiA9Ur2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_03-063f9486bd7045c18c0643276029f85e.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **AmazonBasics 7 Port USB 3.0 Hub vs. Aukey USB Hub 3.0**
 
@@ -179,17 +179,17 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-twice-as-nice-sequential-video-playback-via-television-setup/"><u>[New] In 2024, Twice as Nice Sequential Video Playback via Television Setup</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-navigating-skype-screen-sharing-during-home-office-workflows/"><u>[Updated] Navigating Skype Screen Sharing During Home Office Workflows</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/comment-recuperer-toute-sa-base-de-donnees-sur-un-disque-dur-exterieur/"><u>Comment Récupérer Toute Sa Base De Données Sur Un Disque Dur Exterieur</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-gimp-your-go-to-multi-platform-imaging-solution-for-zero-price-tag/"><u>Comprehensive Analysis of GIMP - Your Go-To Multi-Platform Imaging Solution for Zero Price Tag</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-philips-hf3505-alarm-clock-with-natural-sunrise-simulation/"><u>Comprehensive Review of Philips HF3505 Alarm Clock with Natural Sunrise Simulation</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/cookiebot-enabling-efficient-user-tracking-and-analytics-online/"><u>Cookiebot: Enabling Efficient User Tracking and Analytics Online</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/efficiently-manage-your-media-on-ios-devices-with-winx-mediatrans-expert-pc-to-iphoneipad-transporter/"><u>Efficiently Manage Your Media on iOS Devices with WinX MediaTrans™ - Expert PC to iPhone/iPad Transporter</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhancing-your-workflow-with-ipad-102-inch-tablet-a-comprehensive-review-of-the-new-ipados-features/"><u>Enhancing Your Workflow with iPad 10.2-Inch Tablet: A Comprehensive Review of the New IPadOS Features</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-raspberry-pi/"><u>In-Depth Review of Raspberry Pi</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-digital-divide-metaverse-and-vrs-6-key-distinctions/"><u>Navigating The Digital Divide: Metaverse & VR's 6 Key Distinctions</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-unexplained-input-on-iphones-a-guide-to-10-fixes-for-ghost-touch-glitches/"><u>Overcoming Unexplained Input on iPhones: A Guide to 10 Fixes for Ghost Touch Glitches</u></a></li>
-<li><a href="https://win-dash.techidaily.com/update-your-nvidia-quadro-rtx-4000-gpu-with-newest-drivers-step-by-step-tutorial/"><u>Update Your NVIDIA Quadro RTX 4000 GPU with Newest Drivers – Step-by-Step Tutorial</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-utilizing-b-roll-in-video-production-effectively-for-2024/"><u>[New] Utilizing B-Roll in Video Production Effectively for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-from-words-to-wax-mastering-voice-note-techniques/"><u>[Updated] In 2024, From Words to Wax Mastering Voice Note Techniques</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-populate-play-button-visuals-incorporating-electrodes/"><u>2024 Approved Populate Play Button Visuals Incorporating Electrodes</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beat-the-market-how-apples-2020-arm-powered-mac-mini-outshines-its-rival-pcs/"><u>Beat the Market: How Apple's 2020 ARM-Powered Mac Mini Outshines Its Rival PCs</u></a></li>
+<li><a href="https://games-able.techidaily.com/budget-friendly-ergonomic-and-comfort-keysets-reviewed/"><u>Budget-Friendly Ergonomic & Comfort Keysets Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-imo-chat-app-evaluation-features-and-performance/"><u>Comprehensive Imo Chat App Evaluation: Features and Performance</u></a></li>
+<li><a href="https://games-able.techidaily.com/epic-quests-await-in-the-top-10-free-non-paid-games/"><u>Epic Quests Await in the Top 10 Free, Non-Paid Games</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/generative-ai-and-its-revolutionary-role-in-redefining-career-pathways-top-7-insights/"><u>Generative AI and Its Revolutionary Role in Redefining Career Pathways – Top 7 Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/glion-dolly-e-scooter-reviewed-elite-features-for-those-willing-to-pay-extra-for-expediency-and-style/"><u>Glion Dolly E-Scooter Reviewed: Elite Features for Those Willing to Pay Extra for Expediency and Style</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gotrax-gxl-v2-e-scooter-analysis-perfecting-city-travel-with-speed-and-style/"><u>Gotrax GXL V2 E-Scooter Analysis: Perfecting City Travel with Speed and Style</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-explore-laughter-tears-fusion-the-best-ig-accounts-ever/"><u>In 2024, Explore Laughter-Tears Fusion The Best IG Accounts Ever</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-apple-books-app-showdown-pros-cons-and-insights/"><u>The Apple Books App Showdown: Pros, Cons & Insights</u></a></li>
 </ul></div>
 

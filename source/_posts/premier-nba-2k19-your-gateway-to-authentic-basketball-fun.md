@@ -1,7 +1,7 @@
 ---
 title: "Premier NBA 2K19: Your Gateway to Authentic Basketball Fun"
-date: 2024-10-29T16:37:46.021Z
-updated: 2024-10-30T16:41:45.039Z
+date: 2025-02-04T00:38:49.885Z
+updated: 2025-02-11T04:34:06.778Z
 categories:
   - BestProducts
 description: "This Article Describes Premier NBA 2K19: Your Gateway to Authentic Basketball Fun"
@@ -47,6 +47,10 @@ Lifewire / Emily Isaacs
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Kinesis Freestyle2 Blue
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/wuNd6MsZiivoQ99Xm0JHB9iB4Rs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
@@ -74,18 +78,15 @@ Lifewire / Emily Isaacs
 
 [The Best Ergonomic Keyboards of 2024](https://www.lifewire.com/best-ergonomic-keyboards-4147386)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design and Features: Freestyle2 breaks the mold**
 
  For people who are tethered to their[computers](https://www.lifewire.com/computer-and-laptop-reviews-4102643) , ergonomic keyboards are a must. These keyboards tend to be large thanks to the frequently employed swoop design that opens up the keys to provide additional spacing, so fingers feel less cramped, and a wrist-friendly position that prevents[repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) while typing. These keyboards are typically space hogs, taking up large portions of any surface that they’re placed on, often forcing users to reach further for[mice](https://www.lifewire.com/best-wireless-mice-6666207) . This can lead to shoulder injuries in place of wrist injuries—a trade-off no one wants.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/C-YK_WPWu8Ujx1fwDLxvO6Epi-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_05-adcddc5fc05b415dbcd82396bc0ada77.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -107,13 +108,6 @@ Lifewire / Emily Isaacs
 
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Features: Efficient hotkeys once you get used to them**
 
  Better than its modular design are the easy-to-use hotkeys on the left-hand side of the keyboard. These make it simple to copy, paste, cut, go back or forward in a browser, or even switch between the keyboard’s connected devices smoothly and efficiently. They take a little getting used to but once you get the hang of it using them is a breeze.
@@ -127,10 +121,7 @@ Lifewire / Emily Isaacs
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the features**
@@ -139,14 +130,11 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/vncgu0FEgBJ69UL6H8BjQ2QoGRI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_03-9055476d1d974c8bbe9b1c39d479b300.jpg)
 
- Lifewire / Emily Isaacs
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Isaacs
 
 ## **Kinesis Freestyle2 Blue vs. Microsoft Sculpt Ergonomic Keyboard**
 
@@ -165,6 +153,10 @@ Lifewire / Emily Isaacs
  **An ideal keyboard for Apple users with its compact design, portability, and long-lasting battery.**
 
  The Kinesis Freestyle2 Blue for Mac is a compact, user-friendly ergonomic keyboard that takes comfort and customization to the next level for Apple users thanks to its split, modular design. Its extended battery life of up to 300 plus hours combined with its ability to connect to multiple iOS devices at a time is a game-changer, making it well worth the splurge.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -197,16 +189,20 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-maximizing-revenue-through-youtube-brand-partnerships/"><u>[New] In 2024, Maximizing Revenue Through Youtube Brand Partnerships</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-spectral-rgb-vs-srgb-formats/"><u>[New] Spectral Rgb Vs Srgb Formats</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-efficiently-archiving-mov-movies-on-windows-10-pcs/"><u>[Updated] 2024 Approved Efficiently Archiving .mov Movies on Windows 10 PCs</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-become-a-pro-at-documenting-your-twitch-sessions/"><u>2024 Approved Become a Pro at Documenting Your Twitch Sessions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-bang-for-buck-laptop-in-depth-analysis-of-asus-chromebook-flip-c3nca/"><u>Best Bang for Buck Laptop – In-Depth Analysis of Asus Chromebook Flip C3nca</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-fitbit-versa-comprehensive-smartwatch-evaluation/"><u>Budget-Friendly Fitbit Versa: Comprehensive Smartwatch Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/choosing-the-perfect-device-amazon-fire-tablet-vs-ipad/"><u>Choosing the Perfect Device: Amazon Fire Tablet vs iPad</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-amazon-e-readers-the-key-features-separating-kindle-from-fire-tablet/"><u>Comparing Amazon E-Readers: The Key Features Separating Kindle From Fire Tablet</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/effortless-transfer-facebook-videos-from-pcmac/"><u>Effortless Transfer Facebook Videos From PC/Mac</u></a></li>
-<li><a href="https://driver-download.techidaily.com/optimize-your-acer-predator-helios-ebox-for-ultimate-performance-latest-display-drivers-released/"><u>Optimize Your Acer Predator Helios Ebox for Ultimate Performance: Latest Display Drivers Released</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-mp3-creation-from-caf-files-across-windows-macos-and-web-services/"><u>Step-by-Step MP3 Creation From CAF Files Across Windows, macOS, and Web Services</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-crossing-into-a-shared-tiktok-space-easy-ways-for-2024/"><u>[New] Crossing Into a Shared TikTok Space Easy Ways for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-youtube-to-gif-makers-you-should-use-online-and-desktop/"><u>[New] In 2024, Best YouTube To GIF Makers You Should Use (Online & Desktop)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-mastering-unboxing-expert-tips-and-tricks/"><u>[Updated] In 2024, Mastering Unboxing Expert Tips and Tricks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-sky-high-streams-on-facebook-a-dji-drone-users-guide/"><u>In 2024, Sky-High Streams on Facebook A DJI Drone User's Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-oppo-a38-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Oppo A38 Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-orbis-whole-home-wi-fi-6-system-delivering-swift-connectivity-everywhere-you-need-it/"><u>In-Depth Analysis of Orbi's Whole Home Wi-Fi 6 System: Delivering Swift Connectivity Everywhere You Need It</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-examination-of-the-garmin-vivosmart-4-body-energy-monitoring/"><u>In-Depth Examination of the Garmin Vivosmart 4: Body Energy Monitoring</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/marinesonic-check-reliable-underwater-clarity/"><u>MarineSonic Check: Reliable Underwater Clarity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-excellence-with-the-garmin-gpsmap-64st-a-detailed-review/"><u>Navigating Excellence with the Garmin GPSMAP 64St: A Detailed Review</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-maximize-your-user-engagement-with-instagram-live-shopping-expert-tips-for-2024/"><u>New Maximize Your User Engagement With Instagram Live Shopping Expert Tips for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/only-certain-genera-of-bacteria-primarily-bacillus-and-clostridium-are-known-to-form-endospores/"><u>Only Certain Genera of Bacteria, Primarily Bacillus and Clostridium, Are Known to Form Endospores.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsungs-answer-to-high-end-phones-an-insightful-review-of-the-galaxy-a71-5g/"><u>Samsung's Answer to High-End Phones: An Insightful Review of the Galaxy A71 5G</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-science-behind-engaging-video-content-on-fb-for-2024/"><u>The Science Behind Engaging Video Content on FB for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unveiling-the-mystery-of-office-365-problem-30015-26-on-devices/"><u>Unveiling the Mystery of Office 365 Problem 30015-26 on Devices</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/windows-defenderwindows-11/"><u>Windows DefenderをWindows 11で無効にする方法 - 期間限定/常時オプション</u></a></li>
 </ul></div>
 

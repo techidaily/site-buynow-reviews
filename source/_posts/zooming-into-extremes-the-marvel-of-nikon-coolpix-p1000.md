@@ -1,7 +1,7 @@
 ---
 title: "Zooming Into Extremes: The Marvel of Nikon COOLPIX P1000"
-date: 2025-01-22T20:29:19.168Z
-updated: 2025-01-30T00:58:51.571Z
+date: 2025-02-08T06:14:22.777Z
+updated: 2025-02-11T02:09:44.123Z
 categories:
   - BestProducts
 description: "This Article Describes Zooming Into Extremes: The Marvel of Nikon COOLPIX P1000"
@@ -44,12 +44,16 @@ Lifewire / Andy Zahn
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -100,6 +104,10 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
@@ -114,10 +122,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -125,6 +129,10 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -142,10 +150,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -159,6 +163,10 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -174,6 +182,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -184,19 +196,11 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -213,10 +217,6 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -258,21 +258,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-saving-powerpoint-presentation-to-video/"><u>[New] 2024 Approved Saving PowerPoint Presentation to Video</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-professional-tips-for-using-luts-in-adobe-after-effects/"><u>[Updated] In 2024, Professional Tips for Using LUTs in Adobe After Effects</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-depth-analysis-screenflow-performance-on-macbooks-for-2024/"><u>[Updated] In-Depth Analysis ScreenFlow Performance on MacBooks for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-total-environmental-immersion-in-media-creation/"><u>2024 Approved Total Environmental Immersion in Media Creation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-the-new-look-and-features-of-the-galaxy-s21-by-samsung-simplifying-for-the-future/"><u>Decoding the New Look and Features of the Galaxy S21 by Samsung: Simplifying for the Future</u></a></li>
-<li><a href="https://article-posts.techidaily.com/from-simple-starts-proving-talent-with-tiktok-edits/"><u>From Simple Starts Proving Talent with TikTok Edits</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-your-xiaomi-redmi-note-12t-pro-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Xiaomi Redmi Note 12T Pro Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-expert-insights-on-perfecting-your-gaming-screenshots/"><u>In 2024, Expert Insights on Perfecting Your Gaming Screenshots</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-examination-of-the-imo-messaging-platforms-features-and-performance/"><u>In-Depth Examination of the Imo Messaging Platform's Features and Performance</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/maximizing-impact-with-every-second-in-a-youtube-short-for-2024/"><u>Maximizing Impact with Every Second in a YouTube Short for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-best-virtual-campuses-10-prime-online-course-providers/"><u>Navigating the Best Virtual Campuses: 10 Prime Online Course Providers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reach-new-heights-in-connectivity-with-the-robust-capabilities-of-netgear-nighthawk-x6s-wi-fi-range-extender/"><u>Reach New Heights in Connectivity with the Robust Capabilities of Netgear Nighthawk X6S Wi-Fi Range Extender</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-choosing-a-perfect-ergonomic-keyboard/"><u>The Definitive Guide to Choosing a Perfect Ergonomic Keyboard</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-review-mastering-the-market-with-apples-2018-ipad-pro-11-a-game-changer-in-tech/"><u>Top Review: Mastering the Market with Apple's 2018 iPad Pro 11 - A Game-Changer in Tech</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlock-affordable-photo-magic-kodak-fz53/"><u>Unlock Affordable Photo Magic - Kodak FZ53</u></a></li>
-<li><a href="https://review-topics.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-power-of-perception-iconic-podcast-design-tips/"><u>[Updated] The Power of Perception Iconic Podcast Design Tips</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-iphone-se-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock iPhone SE in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beginners-guide-amazonbasics-tripod-test/"><u>Beginner's Guide: AmazonBasics Tripod Test</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-softbox-innovations-for-dynamic-photography/"><u>Best Softbox Innovations for Dynamic Photography</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-meets-style-the-ultimate-showdown-between-motorola-one-and-the-iphone/"><u>Budget Meets Style: The Ultimate Showdown Between Motorola One and the iPhone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-google-nest-audio-and-nest-mini-features-performance-and-value/"><u>Comparing Google Nest Audio and Nest Mini: Features, Performance & Value</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/criacrs-bluetooth-fm-transmitter-model-cp2e-space-saving-but-not-without-issues-reviewed/"><u>Criacr's Bluetooth FM Transmitter, Model CP2e: Space-Saving but Not Without Issues Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dominating-a-dream-island-in-tropico-6-an-in-depth-review/"><u>Dominating a Dream Island in Tropico 6: An In-Depth Review</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-realme-narzo-n55-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Realme Narzo N55 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-the-lost-connection-to-server-hurdle-in-escape-from-tarkov/"><u>Overcoming the Lost Connection to Server Hurdle in Escape From Tarkov</u></a></li>
+<li><a href="https://games-able.techidaily.com/replicate-precious-gaming-moments-with-steam-reproductions/"><u>Replicate Precious Gaming Moments with Steam Reproductions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/samsung-galaxy-z-flip-enhanced-version-unveiled-a-comprehensive-review-and-upgrades/"><u>Samsung Galaxy Z Flip Enhanced Version Unveiled: A Comprehensive Review and Upgrades</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/tropical-tango-toucan/"><u>Tropical Tango Toucan</u></a></li>
 </ul></div>
 

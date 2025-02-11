@@ -1,7 +1,7 @@
 ---
 title: Inside Scoop on the Mohu Blade – How This Non-Traditional TV Antenna Delivers Excellent Signal Quality Indoors
-date: 2025-01-27T05:21:24.757Z
-updated: 2025-01-29T18:18:51.477Z
+date: 2025-02-10T05:51:49.708Z
+updated: 2025-02-10T21:16:31.181Z
 categories:
   - BestProducts
 description: This Article Describes Inside Scoop on the Mohu Blade – How This Non-Traditional TV Antenna Delivers Excellent Signal Quality Indoors
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/VAWXTe9JaW2K7A_aJc7PNoeBY6E=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
@@ -47,12 +43,16 @@ Lifewire / Jonno Hill
 4.3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -81,6 +81,10 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Glimpsing an ugly future**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna looks something like what I would imagine a space prison to look like. It’s far larger than any of the other antennas that I tested, and during every step of the assembly I kept thinking to myself “well that part can’t possibly be necessary.” From the comically long antennas and giant metal grate, to the bulbous hollowed out spheres, there is a lot going on here.
@@ -98,7 +102,7 @@ Lifewire / Jonno Hill
  Once the entire device is assembled, the real work begins in my opinion. Now you have to figure out how and where to mount this beast of an antenna. Antenna’s Direct has you covered here, including a hefty bracket and swiveling mast that will help you mount the antenna to just about anywhere with a flat surface that you don’t mind screwing some bolts into.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Top tier**
@@ -109,10 +113,6 @@ Lifewire / Jonno Hill
 
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: Extensive**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna is rated for up to 60 miles. These ratings are generally based on relatively unobstructed paths between the signal and your device. There is a lot less than 60 miles between me and my local TV broadcast source, but if the other results are any indication, the ClearStream has a fighting chance at living up to these claims.
@@ -121,13 +121,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Performance doesn’t come cheap**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna has a list price of $120 and a 90-day rolling average price on Amazon of $83\. This is significantly more than any of the other antennas I tested, some of which could be had for around $25\. If you live far enough that you need a better performing antenna, however, it could easily be worth every penny. I would only caution buyers to make sure they really do need this performance before pulling the trigger on this very large antenna.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **ClearStream 2V Indoor/Outdoor HDTV Antenna vs 1byone Digital Amplified Indoor HD TV Antenna**
 
@@ -166,24 +166,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-samsungs-image-manipulation-masterclass-a-review/"><u>[New] Samsung's Image Manipulation Masterclass A Review</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-discover-the-potential-detailed-look-at-showmore-as-your-recording-companion/"><u>[Updated] In 2024, Discover the Potential Detailed Look at ShowMore as Your Recording Companion</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-leading-tools-to-elevate-webcam-video-quality-for-2024/"><u>[Updated] Leading Tools to Elevate Webcam Video Quality for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-the-comprehensive-guide-to-changing-console-voice/"><u>[Updated] The Comprehensive Guide to Changing Console Voice</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-live-stream-titans-clash-twitch-vs-youtube-analysis/"><u>2024 Approved Live-Stream Titans Clash Twitch Vs YouTube Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/asus-chromebook-c202-sa-user-guide-ideal-robust-device-for-learners-of-all-ages/"><u>Asus Chromebook C202 SA User Guide: Ideal Robust Device for Learners of All Ages</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cheetah-dual-arm-tv-mount-review-a-well-built-mount-for-budget-shoppers/"><u>Cheetah Dual Arm TV Mount Review: A Well-Built Mount for Budget Shoppers</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/complete-guide-for-iphone-12-pro-lock-screen-by-drfone-ios/"><u>Complete Guide For iPhone 12 Pro Lock Screen</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fl55-reviews-analyzing-the-winegard-flatwave-antennas-quality-and-price-point/"><u>FL55# Reviews - Analyzing the Winegard FlatWave Antenna's Quality and Price Point</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/g9xii-review-timeless-appeal-for-the-modern-explorer/"><u>G9XII Review – Timeless Appeal for the Modern Explorer</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Xiaomi Redmi K70 | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-guide-to-the-latest-tiktok-screen-art/"><u>In 2024, Guide to the Latest TikTok Screen Art</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-literary-adventures-a-thorough-review-of-amazons-kindle-paperwhite-7gen-e-reader/"><u>Navigating Literary Adventures: A Thorough Review of Amazon's Kindle Paperwhite (7Gen) E-Reader</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/on-the-go-book-lovers-dream-kobo-clara-hd-reviews/"><u>On-the-Go Book Lovers' Dream: Kobo Clara HD Reviews</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/optimized-zoom-audio-settings-for-exceptional-listening/"><u>Optimized Zoom Audio Settings for Exceptional Listening</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-connectivity-errors-making-your-iphone-visible-to-itunes-and-finder/"><u>Overcoming Connectivity Errors: Making Your iPhone Visible to iTunes & Finder</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/professionals-choice-an-in-depth-look-at-the-dji-mavic-2-pro-dominating-the-drone-industry/"><u>Professional's Choice: An In-Depth Look at the DJI Mavic 2 Pro Dominating the Drone Industry</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-verdict-on-apples-iphone-12-pro-max-size-matters/"><u>The Ultimate Verdict on Apple's iPhone 12 Pro Max: Size Matters</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-fifa-19-game-guide-dominating-the-digital-pitch/"><u>Ultimate FIFA 19 Game Guide: Dominating the Digital Pitch</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-elevating-edit-quality-the-ultimate-guide-for-obs-studios/"><u>[New] 2024 Approved Elevating Edit Quality The Ultimate Guide for OBS Studios</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-streaming-showdown-the-podcast-challenge-to-youtubes-dominance-for-2024/"><u>[New] Streaming Showdown The Podcast Challenge to YouTube’s Dominance for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/access-short-videos-anywhere-the-top-6-free-and-online-youtube-short-download-apps-for-2024/"><u>Access Short Videos Anywhere The Top 6 Free & Online YouTube Short Download Apps for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/apply-spiral-depth-enhancement-to-images-psx-for-2024/"><u>Apply Spiral Depth Enhancement to Images PSX for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/beat-the-monotony-explore-our-ultimate-list-of-1-best-board-and-card-games-for-a-fun-fill-in-activity/"><u>Beat the Monotony: Explore Our Ultimate List of 1# Best Board and Card Games for a Fun Fill-In Activity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-j5-tactical-prov1-led-flashlight-analysis-sturdy-and-miniature-design/"><u>Comprehensive J5 Tactical ProV1 LED Flashlight Analysis – Sturdy and Miniature Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-jackery-powerbar-charger-case-evaluation-with-integrated-ac-plug/"><u>Comprehensive Jackery PowerBar Charger Case Evaluation with Integrated AC Plug</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-apple-books-digital-reader/"><u>Comprehensive Review of the Apple Books Digital Reader</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-test-of-the-asus-rt-ac68u-blistering-speed-and-enhanced-security-features/"><u>Comprehensive Test of the Asus RT-AC68U: Blistering Speed and Enhanced Security Features</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/economical-defense-for-macbook-pro-13-a-comprehensive-review-of-the-procase-sleeve/"><u>Economical Defense for MacBook Pro 13 - A Comprehensive Review of the ProCase Sleeve</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-hewlett-packards-economical-amd-powered-notebook-is-the-performance-satisfactory/"><u>Evaluating Hewlett-Packard's Economical AMD-Powered Notebook: Is the Performance Satisfactory?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-zte-frp-by-drfone-android/"><u>How Can We Bypass ZTE FRP?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-periscope-filming-made-easy-the-ultimate-how-to/"><u>In 2024, Periscope Filming Made Easy The Ultimate How-To</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/o-discovery-perfecting-your-youtube-tags-game/"><u>Key to Discovery Perfecting Your YouTube Tags Game</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/logitech-4k-pro-webcam-a-comprehensive-overview/"><u>Logitech 4K Pro Webcam - A Comprehensive Overview</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-gaming-with-the-elite-series-2-the-ultimate-xbox-one-controller-review/"><u>Mastering Gaming with the Elite Series 2 - The Ultimate Xbox One Controller Review</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/quick-guide-integrating-snap-camera-with-teams-for-2024/"><u>Quick Guide Integrating Snap Camera with Teams for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-degrees-elevating-your-youtube-videos-for-2024/"><u>The Art of Degrees Elevating Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-price-and-performance-evaluation-for-the-mohu-leaf-30-indoor-antenna/"><u>The Perfect Blend: Price & Performance Evaluation for the Mohu Leaf 30 Indoor Antenna</u></a></li>
 </ul></div>
 

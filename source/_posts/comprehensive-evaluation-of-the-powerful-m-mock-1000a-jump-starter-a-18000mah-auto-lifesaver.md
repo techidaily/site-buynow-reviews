@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of the Powerful M Mock 1000A Jump Starter - A 18000mAh Auto Lifesaver
-date: 2025-01-25T03:15:20.915Z
-updated: 2025-01-30T00:57:12.852Z
+date: 2025-02-05T23:34:34.233Z
+updated: 2025-02-10T21:20:19.993Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of the Powerful M Mock 1000A Jump Starter - A 18000mAh Auto Lifesaver
@@ -18,17 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/RyrDQ4UMABRCrisk0CfrIlK8j8g=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/CeiJTW7zTopZdtR_zhtXz9_P-Mw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -51,7 +43,7 @@ Lifewire / Gannon Burgett
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
@@ -86,6 +78,10 @@ Lifewire / Gannon Burgett
 
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  As for the materials, the metal enclosure and place ends give it a fairly solid feel, but the metal doesn't sit perfectly flush with the plastic ends, at least not in our model. It could be a one-off quality control issue or it might simply be the way in which the charger is constructed, but it's definitely noticeable.
@@ -109,7 +105,7 @@ Lifewire / Gannon Burgett
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
@@ -124,13 +120,13 @@ Lifewire / Gannon Burgett
 
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: One in the same**
 
@@ -153,6 +149,10 @@ Lifewire / Gannon Burgett
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
 * [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,22 +184,21 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-hdr-rating-does-aurora-deliver-quality/"><u>[Updated] 2024 Approved HDR Rating Does Aurora Deliver Quality?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-mohu-blade-outstanding-indoors-and-original-style/"><u>Comprehensive Evaluation of the Mohu Blade - Outstanding Indoors & Original Style</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/crucial-aspects-to-assess-prior-to-investing-in-a-fitness-monitor/"><u>Crucial Aspects to Assess Prior to Investing in a Fitness Monitor</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/easy-one-step-guide-quickly-converting-au-files-into-wav-format/"><u>Easy One-Step Guide: Quickly Converting AU Files Into WAV Format</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/electric-pulp-testing-can-help-differentiate-between-reversible-and-irreversible-pulpitis-but-must-be-interpreted-with-caution/"><u>Electric Pulp Testing Can Help Differentiate Between Reversible and Irreversible Pulpitis but Must Be Interpreted with Caution.</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/elevate-your-videography-on-android-for-2024/"><u>Elevate Your Videography on Android for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/flatwave-performance-meets-steep-pricing-in-our-winegard-fl5500a-antenna-assessment/"><u>FlatWave Performance Meets Steep Pricing in Our Winegard FL5500A Antenna Assessment</u></a></li>
-<li><a href="https://win-web3.techidaily.com/how-to-fix-a-broken-gpu-expert-tips-and-tricks-by-yl-computing/"><u>How to Fix a Broken GPU: Expert Tips & Tricks by YL Computing</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-a-journey-through-the-digital-landscape-six-engaging-quizzes-for-every-vlogger-admirer/"><u>In 2024, A Journey Through the Digital Landscape Six Engaging Quizzes for Every Vlogger Admirer</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-philips-hf3505-circadian-rhythm-clock-for-a-refreshing-morning-awakening/"><u>In-Depth Review: Philips HF3505 Circadian Rhythm Clock for a Refreshing Morning Awakening</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-download-how-to-safely-transfer-youtube-to-mp4-for-2024/"><u>Legal Download How to Safely Transfer YouTube to MP4 for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lg-k92-evaluation-is-the-upgrade-to-5g-technology-a-mere-gimmick/"><u>LG K92 Evaluation: Is the Upgrade to 5G Technology a Mere Gimmick?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/superior-methods-transforming-pinterest-visuals-into-audios-for-2024/"><u>Superior Methods Transforming Pinterest Visuals Into Audios for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/thorough-review-of-the-motorola-one-t5g-ace-unparalleled-speed-and-remarkable-battery-longevity/"><u>Thorough Review of the Motorola One T5g Ace: Unparalleled Speed and Remarkable Battery Longevity</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/top-servers-for-romance-discord-edition/"><u>Top Servers for Romance Discord Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-top-race-rcr-rock-crawler-mastering-tough-terrain/"><u>Ultimate Guide to Top Race RCR Rock Crawler: Mastering Tough Terrain</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-filmora-coupon-code-2022-7-ways-to-find2022-full-list/"><u>Updated 2024 Approved Filmora Coupon Code 2022 - 7 Ways to Find(2022 Full List)</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-individual-to-institutional-growth-in-youtube-space-for-2024/"><u>[Updated] From Individual to Institutional Growth in YouTube Space for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-infinix-gt-10-pro-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Infinix GT 10 Pro by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-realme-10t-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Realme 10T 5G to New Android? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-vivo-v29-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Vivo V29</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-live-screen-record-on-chrome-pcs/"><u>In 2024, Live Screen Record on Chrome PCs</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-safeguard-your-calls-best-free-and-secure-video-chat-services-for-ios-and-android/"><u>In 2024, Safeguard Your Calls Best Free and Secure Video Chat Services for iOS & Android</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-trippy-techniques-secrets-to-excellent-tripod-use-in-vlogging/"><u>In 2024, Trippy Techniques Secrets to Excellent Tripod Use in Vlogging</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/orchestrate-online-albums-photos-pair-with-songs/"><u>Orchestrate Online Albums Photos Pair With Songs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-installation-tips-boosting-the-performance-of-your-intel-imac/"><u>Step-by-Step Installation Tips: Boosting the Performance of Your Intel iMac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stream-smart-a-detailed-comparison-of-chromecast-vs-roku/"><u>Stream Smart: A Detailed Comparison of Chromecast Vs. Roku</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/superior-performance-in-a-compact-form-discover-the-ourlink-u631-wi-fi-adapter-usb/"><u>Superior Performance in a Compact Form: Discover the Ourlink U631 Wi-Fi Adapter (USB)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-bargain-bluetooth-beats-unraveling-the-oneplus-buds-story/"><u>The Bargain Bluetooth Beats - Unraveling the OnePlus Buds Story</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-gotrache-gxl-v2-commuter-unveiled-high-speed-urban-mobility-at-your-fingertips/"><u>The Gotrache GXL V2 Commuter Unveiled: High-Speed Urban Mobility at Your Fingertips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-blend-reliability-and-excellence-in-speedlite-430ex-iii-rt/"><u>The Perfect Blend: Reliability & Excellence in Speedlite 430EX III-RT</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-practical-choice-in-wearables-a-detailed-look-at-the-affordable-fitbit-versa-watch/"><u>The Practical Choice in Wearables: A Detailed Look at the Affordable Fitbit Versa Watch</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-sony-xperia-5-v-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Sony Xperia 5 V Phones</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Dell G5 5090 Gaming Rig Assessment - Exceptional Value and Versatility
-date: 2025-01-28T17:07:04.065Z
-updated: 2025-01-29T18:25:23.211Z
+date: 2025-02-06T21:10:08.432Z
+updated: 2025-02-11T02:49:05.853Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Dell G5 5090 Gaming Rig Assessment - Exceptional Value and Versatility
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/4i3fdmdcd1swkbkMP9bxOi3Nexc=/400x300/fi
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -51,7 +47,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -86,7 +82,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -99,10 +95,6 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -112,10 +104,14 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Could be better**
 
@@ -130,6 +126,10 @@ Lifewire / Erika Rawes
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -174,24 +174,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-12-best-free-video-players-and-apps-for-pc-and-mobile-device/"><u>[New] 12 Best Free Video Players and Apps for PC and Mobile Device</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-framework-for-high-quality-streaming-archiving/"><u>[New] 2024 Approved The Framework for High-Quality Streaming Archiving</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-how-to-integrate-titles-and-descriptions-into-your-youtube-video/"><u>[Updated] How to Integrate Titles and Descriptions Into Your YouTube Video</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-compreeve-youtube-extraction-11-tools-reviewed/"><u>[Updated] In 2024, Compreeve YouTube Extraction 11 Tools Reviewed</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-navigating-snapchats-new-spotlight-functionality-for-2024/"><u>[Updated] Navigating Snapchat's New Spotlight Functionality for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-speaking-with-impact-in-google-meet-the-guidebook/"><u>2024 Approved Speaking with Impact in Google Meet The Guidebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-wonder-workshops-dash-stem-robot-toy-learn-explore-roll/"><u>Comprehensive Review of the Wonder Workshop's Dash STEM Robot Toy - Learn, Explore, Roll!</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-uninstall-built-in-iphone-apps-a-comprehensive-guide/"><u>How to Uninstall Built-In iPhone Apps: A Comprehensive Guide</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-vivo-y100a-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Vivo Y100A Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-huawei-p30-pro-a-users-unwavering-affection/"><u>In-Depth Analysis of the Huawei P30 Pro: A User's Unwavering Affection</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-examination-why-choose-fongo-for-canadian-business-communications/"><u>In-Depth Examination: Why Choose Fongo for Canadian Business Communications?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-it-time-to-upgrade-comparing-features-of-galaxy-s23-and-s21-ultra/"><u>Is It Time to Upgrade? Comparing Features of Galaxy S23 & S21 Ultra</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-car-secrecy-decipherers-of-next-year/"><u>Leading Car Secrecy Decipherers of Next Year</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/master-the-court-discover-nba-2k19-the-definitive-basketball-simulation/"><u>Master the Court - Discover NBA 2K19, The Definitive Basketball Simulation</u></a></li>
-<li><a href="https://extra-support.techidaily.com/stealth-mode-a-guide-to-living-large-unlabeled-for-2024/"><u>Stealth Mode A Guide to Living Large, Unlabeled for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-guide-to-the-superior-samsung-galaxy-s10-a-smartphone-for-connoisseurs/"><u>The Definitive Guide to the Superior Samsung Galaxy S10 - A Smartphone for Connoisseurs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-seamless-connectivity-with-linksys-velop-a-review-of-its-superior-performance/"><u>Unlocking Seamless Connectivity with Linksys Velop - A Review of Its Superior Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerhouse-a-comprehensive-review-of-the-lightning-fast-netgear-nighthawk-rax120-router/"><u>Unveiling the Powerhouse - A Comprehensive Review of the Lightning-Fast Netgear Nighthawk RAX120 Router</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-memetic-innovations-ideas-that-delight-any-audience/"><u>[Updated] 2024 Approved Memetic Innovations Ideas That Delight Any Audience</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-10-effortless-tips-for-amplifying-video-engagement-on-facebook/"><u>[Updated] In 2024, 10 Effortless Tips for Amplifying Video Engagement on Facebook</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-unlocking-the-full-potential-of-obs-for-your-mac/"><u>[Updated] In 2024, Unlocking the Full Potential of OBS for Your Mac</u></a></li>
+<li><a href="https://video-capture.techidaily.com/best-free-desktop-and-web-based-video-trimmers-of-2024-top-picks/"><u>Best Free Desktop & Web-Based Video Trimmers of 2024: Top Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/bright-ideas-for-your-office-or-study-an-insightful-guide-to-the-modern-features-of-the-taotronics-tt-dl16-led-desk-lamp/"><u>Bright Ideas for Your Office or Study: An Insightful Guide to the Modern Features of the TaoTronics TT-DL16 LED Desk Lamp</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-vivo-y17s-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Vivo Y17s</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-you-improve-laptop-speed-by-adding-more-memory/"><u>Can You Improve Laptop Speed by Adding More Memory?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-you-still-trust-the-durability-of-the-fitbit-charge-3/"><u>Can You Still Trust the Durability of the Fitbit Charge 3?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-elgoog-reviews-a-look-into-the-mirror-sites-greatness/"><u>Comprehensive ElgooG Reviews: A Look Into The Mirror Site's Greatness</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-twelve-souths-bookbook-v2-the-innovative-protective-gear-for-your-macbook/"><u>Comprehensive Review of Twelve South's BookBook V2 - The Innovative Protective Gear for Your MacBook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/delving-deep-into-the-nikon-coolpix-l340-experience/"><u>Delving Deep Into the Nikon Coolpix L340 Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elite-runners-guide-to-the-best-running-watches-available/"><u>Elite Runner’s Guide to the Best Running Watches Available</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/energized-and-alert-every-morning-exploring-the-benefits-of-the-ihome-zenergy-bedside-machine-for-better-rest/"><u>Energized and Alert Every Morning? Exploring the Benefits of the iHome Zenergy Bedside Machine for Better Rest</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-your-productivity-with-the-sabrent-compact-mouse-precision-meets-cable-free-portability/"><u>Enhance Your Productivity with the Sabrent Compact Mouse - Precision Meets Cable-Free Portability!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/eufy-t8200-video-doorbell-top-rated-for-its-no-subscription-convenience/"><u>Eufy T8200 Video Doorbell - Top Rated for Its 'No-Subscription' Convenience!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-tips-for-optimizing-your-srt-setup-for-2024/"><u>Expert Tips for Optimizing Your SRT Setup for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-huawei-nova-y91-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Huawei Nova Y91 Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/the-next-gen-mac-data-rescue-stellar-unleashed/"><u>The Next-Gen Mac Data Rescue - Stellar Unleashed</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-10-unbeatable-christmas-chromebook-offers-on-the-market-insights-from-zdnet/"><u>Top 10 Unbeatable Christmas Chromebook Offers on the Market - Insights From ZDNet</u></a></li>
 </ul></div>
 

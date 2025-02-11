@@ -1,7 +1,7 @@
 ---
 title: "Gamer's Guide: An In-Depth Razer Portal Wi-Fi Router Evaluation"
-date: 2024-10-28T16:35:34.498Z
-updated: 2024-10-30T16:03:16.165Z
+date: 2025-02-10T00:09:34.064Z
+updated: 2025-02-10T16:15:58.769Z
 categories:
   - BestProducts
 description: "This Article Describes Gamer's Guide: An In-Depth Razer Portal Wi-Fi Router Evaluation"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Paradox Interactive Surviving Mars
 
@@ -44,22 +48,12 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
 3
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -88,14 +82,11 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
- Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Rebecca Isaacs
 
 ## **Performance: Humans have never been so annoying**
 
@@ -110,6 +101,10 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -129,6 +124,10 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
@@ -136,13 +135,6 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -183,22 +175,22 @@ thumbnail: https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf2512
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-fb-content-horizontal-or-vertical-format-debate-for-2024/"><u>[New] FB Content Horizontal or Vertical Format Debate for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-maximizing-video-quality-with-gopro-max-or-hero-11-in-2024/"><u>[New] Maximizing Video Quality with GoPro Max or Hero 11, In 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-premier-choice-the-best-10-recorders-for-tech-talks/"><u>[Updated] Premier Choice The Best 10 Recorders for Tech Talks</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-earnings-spectrum-unveiling-the-financial-power-of-dailymovement-and-youtube/"><u>2024 Approved Earnings Spectrum Unveiling the Financial Power of DailyMovement and YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-low-cost-ssl-security-services/"><u>Comparing Low-Cost SSL Security Services</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dbpower-600a-the-ultimate-guide-to-its-dependable-jump-starting-and-18000mah-power-supply-capabilities/"><u>DBPOWER 600A - The Ultimate Guide to Its Dependable Jump Starting and 18,000mAh Power Supply Capabilities!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/determining-the-value-in-iphoneipod-battery-upgrades/"><u>Determining the Value in iPhone/iPod Battery Upgrades</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/digging-deep-into-the-world-of-w15a-frames/"><u>Digging Deep Into the World of W15A Frames</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-london-in-watch-dogs-an-exhaustive-review-of-the-legion-series-unique-environment-shift/"><u>Discovering London in Watch Dogs: An Exhaustive Review of the Legion Series' Unique Environment Shift</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dominating-the-rc-track-an-exhaustive-look-at-the-powerful-galaxy-ford-f-150-remote-control-leviathan/"><u>Dominating the R/C Track: An Exhaustive Look at the Powerful Galaxy Ford F-150 Remote Control Leviathan</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elite-selection-of-accessories-for-your-iphone-device/"><u>Elite Selection of Accessories for Your iPhone Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-legacy-performance-of-lg-watch-style-powered-by-wear-os-version-20/"><u>Evaluating the Legacy Performance of LG Watch Style Powered by Wear OS Version 2.0</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-easily-unlock-samsung-screen-by-drfone-android/"><u>How To Easily Unlock Samsung Screen?</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-complete-analysis-triangulating-life-with-samsung-vr/"><u>In 2024, Complete Analysis Triangulating Life with Samsung VR</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Oppo A78 | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-step-by-step-guide-to-excelling-at-final-cut-pro/"><u>In 2024, Step-by-Step Guide to Excelling at Final Cut Pro</u></a></li>
-<li><a href="https://fox-that.techidaily.com/navigating-troublesome-iphone-x-challenges-solutions-to-the-7-most-common-quandaries/"><u>Navigating Troublesome iPhone X Challenges: Solutions to the 7 Most Common Quandaries</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-haute-makeup-techniques-step-by-step-youtube-guide/"><u>[New] 2024 Approved Haute Makeup Techniques Step-by-Step YouTube Guide</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-accelerate-your-sluggish-vids-to-speedy-shots-on-android-for-2024/"><u>[New] Accelerate Your Sluggish Vids to Speedy Shots on Android for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-sd-card-options-for-gopro-hero-8-plus-7-cameras-for-2024/"><u>Best SD Card Options for GoPro Hero 8 + 7 Cameras for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/compact-innovation-unveiled-is-the-new-mac-minis-m4-chip-a-match-for-its-tiny-form-factor-tech-insights-by-zdnet/"><u>Compact Innovation Unveiled: Is the New Mac Mini's M4 Chip a Match for Its Tiny Form Factor? | Tech Insights by ZDNet</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-exclusion-dilemma-is-someone-hidden-on-snapchat/"><u>In 2024, The Exclusion Dilemma Is Someone Hidden On Snapchat?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/perfect-harmony-in-vr-exploration/"><u>Perfect Harmony in VR Exploration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-all-rounder-in-gps-technology-a-detailed-breakdown-of/"><u>The All-Rounder in GPS Technology: A Detailed Breakdown Of</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-economical-panasonic-hd-journey/"><u>The Economical Panasonic HD Journey</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-understanding-lamicall-ss-ergonomic-tablet-holder-designed-with-purpose/"><u>The Essential Guide to Understanding Lamicall S's Ergonomic Tablet Holder: Designed with Purpose</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-strength-of-bose-sportwireless-hp-sound-unveiled/"><u>The Strength of Bose SportWireless HP Sound Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-blade-e-flite-mcx-rtf-heli-unbiased-review-of-the-best-pre-assembled-flying-marvel/"><u>The Ultimate Guide to Blade E-Flite mCX² RTF Heli: Unbiased Review of the Best Pre-Assembled Flying Marvel</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-selecting-powerful-chipsets/"><u>The Ultimate Guide to Selecting Powerful Chipsets</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-apple-iphone-12-pro-max-when-size-matters-in-smartphones/"><u>The Ultimate Guide to the Apple iPhone 12 Pro Max: When Size Matters in Smartphones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-ranking-how-the-xbox-one-elite-series-controller-claims-top-spot-in-console-history/"><u>The Ultimate Ranking: How the Xbox One Elite Series Ⅱ Controller Claims Top Spot in Console History</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/thorough-vsco-editor-user-manual-for-2024/"><u>Thorough VSCO Editor User Manual for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-achieving-consistent-sound-levels-with-davinci-resolve-for-2024/"><u>Updated Achieving Consistent Sound Levels with DaVinci Resolve for 2024</u></a></li>
 </ul></div>
 

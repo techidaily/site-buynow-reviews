@@ -1,7 +1,7 @@
 ---
 title: "Panasonic Lumix FZ80: A Photo Companion for All"
-date: 2024-08-22T16:12:40.480Z
-updated: 2024-08-23T16:12:40.480Z
+date: 2025-02-09T19:45:16.888Z
+updated: 2025-02-10T18:37:45.096Z
 categories:
   - BestProducts
 description: "This Article Describes Panasonic Lumix FZ80: A Photo Companion for All"
@@ -38,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/728afd7e20b349094de30222af4ebc05eabd7a8ee
 4.6
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## MoKo Universal Foldable Keyboard
 
 [View On Amazon](https://www.amazon.com/MoKo-Universal-Ultra-Thin-Bluetooth-Compatible/dp/B01EHSLFAY/?tag=lifewire-onsite-prod-20&ascsubtag=4780289%7Cn5042862dc88b4247855b5214c266875a05%7CB01EHSLFAY)
@@ -62,10 +63,6 @@ thumbnail: https://thmb.techidaily.com/728afd7e20b349094de30222af4ebc05eabd7a8ee
 
  Thanks to its compact, foldable design, it’s easy to throw in a purse, backpack, or pocket and take along on any adventure, making it an excellent Bluetooth keyboard for frequent travelers. With a general retail price of about $26, we found it to be well worth the investment during a week’s worth of testing.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/gc10rUCSYdVdK9mjhhhyWwNX5Ns=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_02-6aa51e84e0c246f0987efcf9b7a55ffa.jpg)
 
  Lifewire / Emily Isaacs
@@ -81,8 +78,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The hotkeys on the keyboard are located on the top row. These include several excellent built-in functions, such as cut, skipping forward or back in multimedia tracks, pausing music, increasing or decreasing volume, opening a new search, and several others. These are easy to use thanks to the function key on the lower-left hand side of the keyboard. One drawback, however, is the blue color used to identify these built-in functions is somewhat difficult to see in low-light conditions.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Setup Process and Connectivity: Broad Device Compatibility
 
  The MoKo Universal Foldable Bluetooth Keyboard arrives in a small box with the keyboard itself, a small one-year free warranty card, a pamphlet with setup instructions, and a micro USB charging cable. One piece we wish it included is a stand for smartphones. While it’s compatible with them, it’s not very convenient to type on them without one. We’d highly recommend getting a separate stand if you’re considering this keyboard for a smartphone.
@@ -98,8 +96,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The MoKo is small—hardly larger than your hand when folded down to its collapsed size.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Battery: Plenty of Juice for Work
 
  The battery life of the MoKo is easy to fall in love with. The MoKo’s charge time is just under two hours and it can support up to 40 hours of uninterrupted work or 30 days of standby time. One added bonus of the keyboard being rechargeable was that we weren’t dependent upon having batteries when the keyboard inevitably ran out of charge. It also has the added benefit of entering a battery-saving mode after sitting idle for 30 minutes, so if you walk away and forget about it, it won’t continue to run out its charge. Reconnecting is easy, too. Simply press any key and, within 30 seconds or less, it’s ready for use.
@@ -108,10 +107,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Travel-size ergonomic keyboards generally retail for anywhere from $20-$50\. The MoKo retails for around $27 on Amazon. With its low price point, compact build, excellent portability, and great battery life, it’s well worth the price for commuters and frequent flyers who have limited space.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/_ZZ5LMz0jlm5vldVU2UTdDoXbeA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_05-fc37bb4154314025a1a1bfae6c6f5e24.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -130,8 +130,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The MoKo Universal Foldable Bluetooth Keyboard is an ultra-thin, split keyboard that packs plenty of bang for your buck. Its U-shaped ergonomic design is comfortable, and with a battery life of up to 40 hours of continuous use or 30 days of standby time make it a great choice for commuters or frequent travelers.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Universal Foldable Keyboard
@@ -148,14 +149,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Charge Time  Less than 2 hours
 * Compatibility  Compatible with iPads, iPhones, Androids devices, tablets, and Windows desktop computers with Bluetooth capabilities. Not compatible with Windows Mobile.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,4 +162,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-essential-tactics-capturing-high-quality-sports-streams-online-for-2024/"><u>[Updated] Essential Tactics Capturing High-Quality Sports Streams Online for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-methods-building-time-lapses-on-galaxy-devices/"><u>[Updated] Innovative Methods Building Time-Lapses on Galaxy Devices</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/best-free-tools-for-pc-maintenance-expert-picks-of-the-26-best-registry-cleaners/"><u>Best Free Tools for PC Maintenance - Expert Picks of the 26 Best Registry Cleaners</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-oppo-reno-11f-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-netgear-orbi-rbs50y-transforming-your-garden-internet-experience/"><u>Comprehensive Guide to Netgear Orbi RBS50Y: Transforming Your Garden Internet Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-high-performance-cable-modems/"><u>Comprehensive Review of High-Performance Cable Modems</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crucial-questions-before-acquiring-a-wi-fi-device/"><u>Crucial Questions Before Acquiring a Wi-Fi Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dive-into-waterproof-reading-with-the-kobo-libra-h2o-thorough-assessment-and-feedback/"><u>Dive Into Waterproof Reading with the Kobo Libra H2O - Thorough Assessment & Feedback</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-top-blade-e-flite-mcx2-rtf-helicopter-the-ultimate-choice-for-hobbyists/"><u>Expert Analysis: Top Blade E-Flite mCX2 RTF Helicopter - The Ultimate Choice for Hobbyists</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-rugged-and-powerful-world-of-unihertz-atom-xl/"><u>Exploring the Rugged and Powerful World of Unihertz Atom XL</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/optimized-with-cutting-edge-cookiebot-technology/"><u>Optimized with Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://driver-download.techidaily.com/rtx-2080-driver-update-compatible-with-windows-11-7-and-earlier-versions-of-microsoft-os/"><u>RTX 2080 Driver Update - Compatible with Windows 11, 7 and Earlier Versions of Microsoft OS</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-buying-guide-to-the-finest-55-inch-tvs-for-2-groovy-2023-insights-by-zdnet/"><u>Ultimate Buying Guide to the Finest 55-Inch TVs for 2 Groovy 2023 - Insights by ZDNET</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-youtubes-algorithm-title-and-tag-optimization-for-2024/"><u>Unlocking YouTube's Algorithm Title & Tag Optimization for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-performance-of-google-wireless-nest-doorbells-batteries/"><u>Unveiling the Performance of Google Wireless Nest Doorbells (Batteries)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/waking-up-better-on-a-budget-a-comprehensive-review-of-the-totobay-wake-up-light-2nd-gen/"><u>Waking Up Better on a Budget: A Comprehensive Review of the Totobay Wake-Up Light (2Nd Gen).</u></a></li>
+<li><a href="https://win-info.techidaily.com/1728499237181-wbadmin/"><u>バックアップおよびシステムの再構築: Wbadminコマンドラインオプションでするべきこと - 詳細解説</u></a></li>
+</ul></div>
 

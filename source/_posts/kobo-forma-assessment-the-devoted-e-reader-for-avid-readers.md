@@ -1,7 +1,7 @@
 ---
 title: "Kobo Forma Assessment: The Devoted E-Reader for Avid Readers"
-date: 2025-01-18T20:25:29.308Z
-updated: 2025-01-22T18:06:31.817Z
+date: 2025-02-05T17:07:34.653Z
+updated: 2025-02-11T00:18:59.443Z
 categories:
   - BestProducts
 description: "This Article Describes Kobo Forma Assessment: The Devoted E-Reader for Avid Readers"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/ed7df24877c809d3df195ee4e441348959e5b212a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7 Days to Die
@@ -76,15 +76,7 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easy thanks to Steam**
 
@@ -94,14 +86,10 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Plot: Open world horror sandbox**
@@ -117,6 +105,10 @@ Lifewire / Rebecca Isaacs
  The other, titular part of the plot: every seven days, a zombie horde descends upon you. They know your location. They will find you and claw their way to you, and you have to fend yourself and your base from them. As the 7 days pass, they get harder to defeat. Our understanding is that the end goal of 7 Days is to add a story, but right now they’re focused on honing in general gameplay. We hope that the story will be optional since as a survival horror sandbox, it works very well.
 
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -142,6 +134,10 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -150,19 +146,23 @@ Lifewire / Rebecca Isaacs
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Platform: It’s complicated**
 
  7 Days to Die runs on many platforms:[PC](https://www.lifewire.com/what-is-a-mac-4155662) ,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and[Xbox 360](https://www.lifewire.com/xbox-360-buyers-guide-3562451) . We played 7 Days on PC, and at the time of writing, they released a teaser for the Alpha 18 update which would roll out to the PC version of the game.
 
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -209,22 +209,21 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweettub-ios-app-for-fetching-twitter-vids/"><u>[New] 2024 Approved TweetTub IOS App for Fetching Twitter Vids</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-maximizing-impact-strategies-for-overcoming-video-short-snags/"><u>[New] In 2024, Maximizing Impact Strategies for Overcoming Video Short Snags</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-turning-fans-into-followers-friends-and-profits/"><u>[New] In 2024, Turning Fans Into Followers, Friends, and Profits</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/bitcoin-wallet-schutz-in-windows-1087-professionelle-sicherheitsmethoden-erlautern/"><u>BITCOIN-Wallet Schutz in Windows 10/8/7 - Professionelle Sicherheitsmethoden Erläutern</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/latest-tech-news-recap-analyzing-the-impact-of-atandt-security-incident-and-launch-of-new-samsung-devices/"><u>Latest Tech News Recap: Analyzing the Impact of AT&T Security Incident and Launch of New Samsung Devices</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/navigate-and-dominate-with-youtube-studios-advanced-editing-features-for-2024/"><u>Navigate and Dominate with YouTube Studio's Advanced Editing Features for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/quick-and-effective-guide-on-setting-up-an-amazon-fire-tv-stick-remote/"><u>Quick & Effective Guide on Setting Up an Amazon Fire TV Stick Remote</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ready-to-discover-more-with-your-personalized-spotify-post-spotify-wrapped/"><u>Ready to Discover More with 'Your Personalized Spotify' Post-Spotify Wrapped</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/save-big-with-exclusive-steam-summer-sales-15-fantastic-pc-game-bargains-for-less-than-5/"><u>Save Big with Exclusive Steam Summer Sales: 15 Fantastic PC Game Bargains for Less Than $5</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/seize-your-chance-dominate-on-iphone-with-exclusive-games-during-prime-day-sales/"><u>Seize Your Chance: Dominate on iPhone with Exclusive Games During Prime Day Sales</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sony-dsc-w800-a-comprehensive-review-of-reliability-and-economy/"><u>Sony DSC-W800: A Comprehensive Review of Reliability and Economy</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-tutorial-on-downloading-windows-7-compatible-keyboard-drivers/"><u>Step-by-Step Tutorial on Downloading Windows 7 Compatible Keyboard Drivers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stream-content-using-plex-while-wearing-the-meta-quest-headset-a-step-by-step-tutorial/"><u>Stream Content Using Plex While Wearing the Meta Quest Headset - A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-4-compelling-reasons-to-pause-your-gaming-spree-in-the-coming-year/"><u>Top 4 Compelling Reasons to Pause Your Gaming Spree in the Coming Year</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-mirrorless-camera-lenses-a-comprehensive-guide/"><u>Top-Rated Mirrorless Camera Lenses : A Comprehensive Guide</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/upcoming-foldable-iphones-unveiled-price-estimates-launch-dates-and-feature-leaks/"><u>Upcoming Foldable iPhones Unveiled! Price Estimates, Launch Dates & Feature Leaks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-despite-my-affection-for-kindle-purchasing-ebooks-from-amazon-remains-a-no-go/"><u>Why Despite My Affection for Kindle, Purchasing eBooks From Amazon Remains a No-Go</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-enthralling-time-lapse-crafting-using-gopro-hero5-black/"><u>[New] In 2024, Enthralling Time-Lapse Crafting Using GoPro Hero5 Black</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-securing-a-slot-in-youtube-finding-your-market/"><u>[New] In 2024, Securing a Slot in YouTube Finding Your Market</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-crafting-an-authentic-online-presence-in-the-world-of-fb-for-2024/"><u>[Updated] Crafting an Authentic Online Presence in the World of FB for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/detailed-review-of-galaxys-heavyweight-contender-the-remote-control-ford-f150/"><u>Detailed Review of Galaxy’s Heavyweight Contender – The Remote Control Ford F150</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-best-iphone-gps-applications-our-top-picks/"><u>Discover the Best iPhone GPS Applications: Our Top Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/engaging-with-arlo-a-practical-guide-to-your-residential-safety-system/"><u>Engaging with Arlo: A Practical Guide to Your Residential Safety System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-dominance-in-consoles-the-definitive-xbox-one-x-analysis/"><u>Evaluating Dominance in Consoles: The Definitive Xbox One X Analysis</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-kobo-nia-e-reader-a-strong-contender-to-the-market-dominant-kindle/"><u>Evaluating the Kobo Nia E-Reader: A Strong Contender to the Market Dominant Kindle</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/excellent-value-with-the-nokia-71-top-notch-screen-and-photography-at-a-budget/"><u>Excellent Value with the Nokia 7.1 - Top-Notch Screen & Photography at a Budget</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-and-customer-feedback-on-the-all-encompassing-eero-pro-mesh-router/"><u>Expert Analysis and Customer Feedback on the All-Encompassing Eero Pro Mesh Router</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-picks-elite-netgear-routers-of-the-year-2024/"><u>Expert Picks: Elite Netgear Routers of the Year 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-ascend-to-million-view-milestone-with-this-guide/"><u>In 2024, Ascend to Million View Milestone with This Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/iphone-users-guide-to-avoiding-unwanted-sms-communications/"><u>IPhone Users' Guide to Avoiding Unwanted SMS Communications</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-browser-blockades-a-guide-to-web-site-restoration-on-windows/"><u>Overcoming Browser Blockades: A Guide to Web Site Restoration on Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-of-computing-a-review-of-the-revolutionary-imac-with-m1-technology/"><u>The Future of Computing - A Review of the Revolutionary iMac with M1 Technology</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-latest-upgrade-for-photography-enthusiasts-exploring-iphone-ns-revolutionary-camera-button-gadget-digest/"><u>The Latest Upgrade for Photography Enthusiasts: Exploring iPhone N's Revolutionary Camera Button | Gadget Digest</u></a></li>
 </ul></div>
 

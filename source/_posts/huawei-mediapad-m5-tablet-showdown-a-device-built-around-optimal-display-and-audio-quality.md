@@ -1,7 +1,7 @@
 ---
 title: "Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
-date: 2025-01-25T01:40:07.217Z
-updated: 2025-01-29T19:50:51.606Z
+date: 2025-02-04T17:50:53.757Z
+updated: 2025-02-11T02:25:38.188Z
 categories:
   - BestProducts
 description: "This Article Describes Huawei MediaPad M5 Tablet Showdown: A Device Built Around Optimal Display and Audio Quality"
@@ -18,12 +18,16 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/bJGZVvLPIuXJptw8uPYtObxbpMQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -48,12 +52,16 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 3.6
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -110,10 +118,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
@@ -136,11 +140,11 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio Quality: Loud, but distorted**
 
@@ -163,7 +167,7 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Not bad for the size, but not the cheapest**
@@ -173,10 +177,6 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
  On Sony’s website, the 65-inch model we tested here is listed at $1,300, the 75 at $2,300, and the 85 at a whopping $4,000\. Now these prices aren’t exactly accurate, especially since these are an older series. Typically you can find the 65-inch for about $1,100 or so. The other models are also heavily discounted depending on where you look, so definitely shop around. It’s likely that you can snag them for even less during sales.
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
@@ -225,24 +225,20 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-discovering-instagram-de-follows-quickly/"><u>[New] Discovering Instagram De-Follows Quickly</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-blitzing-through-images-on-win11/"><u>[Updated] Blitzing Through Images on Win11</u></a></li>
-<li><a href="https://win-able.techidaily.com/2023s-best-fixes-for-smoother-gameplay-overcoming-minecraft-stuttering/"><u>2023'S Best Fixes for Smoother Gameplay: Overcoming Minecraft Stuttering</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ais-role-in-content-creation-where-it-falls-short/"><u>AI's Role in Content Creation - Where It Falls Short</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/an-in-depth-look-at-chatgpt-unrestricted-models-are-they-right-for-you/"><u>An In-Depth Look at ChatGPT Unrestricted Models – Are They Right for You?</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2670055-9781515408727-byways-to-blessedness/"><u>Byways to Blessedness | Free Book</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/comprehensive-guide-creating-a-secure-backup-of-your-linux-machine-using-rsync/"><u>Comprehensive Guide: Creating a Secure Backup of Your Linux Machine Using Rsync</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-truecaller-application-evaluation/"><u>Comprehensive Truecaller Application Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dell-inspiron-3671-desktop-analysis-an-unpretentious-midrange-computer-system-overview/"><u>Dell Inspiron 3671 Desktop Analysis: An Unpretentious Midrange Computer System Overview</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/durability-and-ease-with-ergoheads-anti-fatigue-mats-an-in-depth-review/"><u>Durability and Ease with ErgoHead's Anti-Fatigue Mats - An In-Depth Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/glion-dolly-electric-scooter-overview-premium-pricing-stylish-design-and-acceleration-insights/"><u>Glion Dolly Electric Scooter Overview - Premium Pricing, Stylish Design & Acceleration Insights</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-vivo-s17-pro-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Vivo S17 Pro FRP In 3 Different Ways</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/introducing-the-hp-stream-11-ultimate-compact-laptop-for-essential-tasks/"><u>Introducing the HP Stream 11: Ultimate Compact Laptop for Essential Tasks</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/is-the-oneplus-nord-n100-worth-your-money-a-detailed-budget-phone-evaluation/"><u>Is the OnePlus Nord N100 Worth Your Money? A Detailed Budget Phone Evaluation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-imac-enhancements-a-tutorial-for-intel-models/"><u>Mastering iMac Enhancements: A Tutorial for Intel Models</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/portable-energy-revolutionized-expert-insight-on-the-acclaimed-maxoak-battery-unit/"><u>Portable Energy Revolutionized: Expert Insight on the Acclaimed MaxOak Battery Unit</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-smart-shoppers-choice-comprehensive-assessment-of-the-no-nonsense-economical-macbook-pro-eby-procase-case/"><u>The Smart Shopper's Choice: Comprehensive Assessment of The No-Nonsense, Economical MacBook Pro Eby ProCase Case</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-excellence-in-hobbyist-flight-the-blade-e-flite-mcx2-rtf-rc-helicopter-reviewed/"><u>Unveiling Excellence in Hobbyist Flight: The Blade E-Flite mCX2 RTF RC Helicopter Reviewed</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/winxdvdand/"><u>WinXDVDで強化されたビデオ再生技術&ヒント集</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-perfect-video-conferencing-the-essential-list-of-10-free-recorders/"><u>2024 Approved Perfect Video Conferencing The Essential List of 10 Free Recorders</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Vivo X90S | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/best-practices-and-features-of-manycam-professional-live-streaming-with-a-virtual-camera/"><u>Best Practices and Features of ManyCam: Professional Live Streaming with a Virtual Camera</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ensure-uninterrupted-fun-overcome-maplestory-crashing-issues-on-windows-10-comprehensive-guide/"><u>Ensure Uninterrupted Fun: Overcome MapleStory Crashing Issues on Windows 10 - Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exclusive-acer-offers-for-prime-day-shoppers/"><u>Exclusive Acer Offers for Prime Day Shoppers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-microsoft-surface-ergonomic-keyboards-premium-build-and-design/"><u>Expert Analysis of the Microsoft Surface Ergonomic Keyboard's Premium Build & Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-unveiling-the-capabilities-of-the-gaomon-pd1560-pen-display/"><u>Expert Review: Unveiling The Capabilities of The Gaomon PD1560 Pen Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-bouncies-driving-connect-tracking-solution-affordable-easy-to-use-tech-for-on-road-peace-of-mind/"><u>Exploring Bouncie's Driving Connect Tracking Solution: Affordable, Easy-to-Use Tech for On-Road Peace of Mind</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gamers-reveal-the-top-console-picks/"><u>Gamers Reveal the Top Console Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-fill-your-free-time-top-10-exciting-games-when-youre-feeling-bored/"><u>How to Fill Your Free Time: Top 10 Exciting Games When You're Feeling Bored</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-premier-picks-top-tripods-for-crystal-clear-4k-cinematography/"><u>In 2024, Premier Picks Top Tripods for Crystal-Clear 4K Cinematography</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/option-2/"><u>Option 2:</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/shareable-video-surge-2024/"><u>Shareable Video Surge 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/5-youtube-portals-on-stocks-and-trades/"><u>Top 15 YouTube Portals on Stocks & Trades</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/ultimate-guide-streamline-your-server-storage-with-leading-disk-utilities-for-winsrv-2012r2/"><u>Ultimate Guide: Streamline Your Server Storage with Leading Disk Utilities for WinSrv 2012(R2)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review of Microsoft's Ergonomic Surface Keyboard: Top-Tier Craftsmanship Unveiled"
-date: 2025-01-28T02:13:08.309Z
-updated: 2025-01-30T07:47:56.331Z
+date: 2025-02-06T21:52:09.572Z
+updated: 2025-02-11T06:09:22.585Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review of Microsoft's Ergonomic Surface Keyboard: Top-Tier Craftsmanship Unveiled"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/a69a15798572265a2574284260281ddf651b6e2ed
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/F035WaL3U8Q-n4fK2WBE6844lMo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -50,13 +46,13 @@ Lifewire / Emily Isaacs
 
 4.4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -84,6 +80,10 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -91,10 +91,6 @@ Lifewire / Emily Isaacs
  Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key.
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Batteries required**
 
@@ -105,6 +101,10 @@ Lifewire / Emily Isaacs
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -121,10 +121,14 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -149,10 +153,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,18 +184,21 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-maximizing-impact-with-customized-youtube-audiences/"><u>[New] 2024 Approved Maximizing Impact with Customized Youtube Audiences</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-selecting-the-best-screencast-apps-for-digital-learning/"><u>[Updated] In 2024, Selecting the Best Screencast Apps for Digital Learning</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-twilight-crusaders-the-darkened-knight-vs-the-shining-one/"><u>[Updated] Twilight Crusaders The Darkened Knight vs the Shining One</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-the-new-titans-samsung-galaxy-s24-ultra-vs-s23-ultra-which-one-reigns-supreme/"><u>Comparing the New Titans: Samsung Galaxy S24 Ultra vs S23 Ultra – Which One Reigns Supreme?</u></a></li>
-<li><a href="https://games-able.techidaily.com/connect-xbox-to-laptop-a-guide-to-effective-gaming-display-setup/"><u>Connect Xbox to Laptop: A Guide to Effective Gaming Display Setup</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/crafting-quick-edits-in-photoshop-using-the-freeze-mask-feature/"><u>Crafting Quick Edits in Photoshop Using the Freeze Mask Feature</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-smart-photo-editor-from-anthropics-a-complete-software-analysis/"><u>In-Depth Look at the Smart Photo Editor From Anthropics: A Complete Software Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kobo-clara-hd-unveiled-a-perfect-travel-buddy-for-avid-readers-detailed-review-inside/"><u>Kobo Clara HD Unveiled: A Perfect Travel Buddy for Avid Readers - Detailed Review Inside!</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/master-class-on-smudge-techniques-in-images-for-2024/"><u>Master Class on Smudge Techniques in Images for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-art-of-video-grading-a-practical-handbook/"><u>The Art of Video Grading A Practical Handbook</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-guide-to-creating-share-worthy-memes-on-9gag-for-2024/"><u>The Ultimate Guide to Creating Share-Worthy Memes on 9GAG for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-deal-roundup-acers-must-have-discounts-for-the-2024-prime-shopping-event/"><u>Ultimate Deal Roundup: Acer's Must-Have Discounts for the 2024 Prime Shopping Event</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-exploring-basic-hdr-a-thorough-review-guide/"><u>[New] 2024 Approved Exploring Basic HDR A Thorough Review Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-mastering-the-deck-to-deck-experience-with-durecorder/"><u>[New] In 2024, Mastering the Deck-to-Deck Experience with DuRecorder</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-master-your-space-essential-bot-selections-for-discord-for-2024/"><u>[New] Master Your Space Essential Bot Selections for Discord for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-mastering-metaverse-advertising-techniques/"><u>[Updated] Mastering Metaverse Advertising Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-durable-and-highly-effective-uniden-r3-long-range-radar-scanner/"><u>Expert Analysis of the Durable and Highly Effective Uniden R3 Long-Range Radar Scanner</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/find-your-perfect-viewing-companion-with-these-6-leading-e-commerce-retailers-for-tvs/"><u>Find Your Perfect Viewing Companion with These 6 Leading E-Commerce Retailers for TVs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-delicious-disarray-to-gaming-feast-the-complete-overcooked-2-evaluation/"><u>From Delicious Disarray to Gaming Feast: The Complete Overcooked! 2 Evaluation</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-samsung-galaxy-f15-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Samsung Galaxy F15 5G Devices</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-review-the-mavix-m9-for-gamers-ultimate-seating-experience/"><u>In-Depth Analysis & Review: The Mavix M9 for Gamers' Ultimate Seating Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/investigating-the-mixed-feedback-on-boses-qc30-headphones/"><u>Investigating the Mixed Feedback on Bose's QC30 Headphones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/logitech-c615-camera-assessment-balancing-cost-effectiveness-with-high-functionality/"><u>Logitech C615 Camera Assessment: Balancing Cost-Effectiveness with High Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/luxurious-soundscapes-embrace-you-with-h8i/"><u>Luxurious Soundscapes Embrace You with H8i</u></a></li>
+<li><a href="https://video-capture.techidaily.com/streamlining-sound-recording-a-filmmakers-handbook-on-voice-overs/"><u>Streamlining Sound Recording A Filmmaker's Handbook on Voice-Overs</u></a></li>
+<li><a href="https://techtrends.techidaily.com/understanding-the-basics-what-exactly-is-an-rtx-graphics-card/"><u>Understanding the Basics: What Exactly Is an RTX Graphics Card?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlocking-the-secrets-to-effective-imagery-discovery-on-facebook-platforms/"><u>Unlocking the Secrets to Effective Imagery Discovery on Facebook Platforms</u></a></li>
 </ul></div>
 
