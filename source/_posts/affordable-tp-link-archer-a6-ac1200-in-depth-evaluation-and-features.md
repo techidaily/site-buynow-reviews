@@ -1,7 +1,7 @@
 ---
 title: "Affordable TP-Link Archer A6 AC1200: In-Depth Evaluation and Features"
-date: 2024-09-09T07:50:20.752Z
-updated: 2024-09-10T07:50:20.752Z
+date: 2025-02-26T23:22:48.455Z
+updated: 2025-03-01T18:11:04.085Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable TP-Link Archer A6 AC1200: In-Depth Evaluation and Features"
@@ -9,12 +9,6 @@ excerpt: "This Article Describes Affordable TP-Link Archer A6 AC1200: In-Depth E
 thumbnail: https://thmb.techidaily.com/04cd06d52399075f11c15c05a13e29b26c1429efba226e9e1f8c0fb8fb4b1fd0.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Discover the Best Features of Rexing's V1 Dash Cam - An Affordable Option with Stealth Mode
 
 4.2
@@ -47,12 +41,6 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/5zZ5bclZ7zJVo8nRB2Y33JNM3w4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Danny Chadwick
 
 [View On Amazon](https://www.amazon.com/V1-Dashboard-Recorder-G-Sensor-Recording/dp/B00X528FNE/?tag=lifewire-onsite-prod-20&ascsubtag=4770571%7Cn9eae1cd5706347139b8b83241f9d42ea10%7CB00X528FNE) [View On Home Depot](https://www.homedepot.com/p/Rexing-V1-2-4-in-LCD-FHD-1080p-170-Wide-Angle-Dashboard-Camera-Recorder-Car-Dash-Cam-with-G-Sensor-WDR-Loop-Recording-V1/301705517)
@@ -110,20 +98,8 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/df0_L-UzAk3OryqSCncsjfqi8QM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_03-2273fff3f71944368711b60f5da9687e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera Quality: Basic**
 
  You can set this dash-mounted camera to capture footage in either 720p or 1080p resolution, which is pretty limited. Similar dashcams can capture footage up to 2560 x 1440 resolution, with others going all the way up to 4K. However, if all you’re looking for is a simple security device, 1080p will do just fine.
@@ -132,18 +108,6 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Danny Chadwick
 
 ## **Performance: Set it and forget it**
@@ -160,22 +124,10 @@ Lifewire / Danny Chadwick
 
  Like the rest of the dashboard cameras we tested, the Rexing V1 has the ability to record audio, but it does a middling job of it. Voices in the car and sounds coming from the interior speakers were clear enough to understand, but sounds from outside the vehicle were muddy at best.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A good value**
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Z3 Plus vs. Rexing V1**
 
  If you’re wondering if you want to pay the extra $25 or so for the Z-Edge Z3 Plus dashcam (which retails for $125), the decision will come down to form factor and image quality—everything else is pretty much the same.
@@ -192,12 +144,6 @@ Lifewire / Danny Chadwick
 
  There isn’t much to complain about with the Rexing V1 DashCam. Its innovative form factor combined with a wide array of video capture features and decent picture quality means you won’t have any buyer’s remorse if you choose this dashcam.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  V1 DashCam
@@ -212,14 +158,11 @@ Lifewire / Danny Chadwick
 * Night Vision  No
 * Connectivity Options  MicroSD, USB
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -228,4 +171,26 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-streamline-your-show-entry-on-apple-media-for-2024/"><u>[New] Streamline Your Show Entry on Apple Media for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-streamlining-film-shoots-a-beginners-guide-for-2024/"><u>[New] Streamlining Film Shoots A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-earning-as-a-video-game-geek/"><u>[Updated] In 2024, Earning as a Video Game Geek</u></a></li>
+<li><a href="https://techtrends.techidaily.com/besten-freien-programme-zum-umgang-mit-dvds-spielen-kopieren-extrahieren-und-verbrennen/"><u>Besten Freien Programme Zum Umgang Mit DVDs: Spielen, Kopieren, Extrahieren Und Verbrennen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-the-improved-apple-watch-series-4-experience/"><u>Comprehensive Guide to the Improved Apple Watch Series #4 Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deciphering-the-distinction-a-side-by-side-comparison-of-kindle-and-amazon-fire-tablet/"><u>Deciphering the Distinction: A Side-by-Side Comparison of Kindle and Amazon Fire Tablet.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-on-nest-audio-elevating-your-listening-experience-with-a-cleverly-designed-speaker/"><u>Expert Review on Nest Audio: Elevating Your Listening Experience with a Cleverly Designed Speaker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-battle-evaluating-the-differences-between-google-nest-audio-and-nest-mini/"><u>Head-to-Head Battle: Evaluating the Differences Between Google Nest Audio & Nest Mini</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-capturing-piscine-adventures-5-superior-camers/"><u>In 2024, Capturing Piscine Adventures - 5 Superior Camers</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-pro-max-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 15 Pro Max Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-ring-wired-smart-video-doorbell-pros-and-cons/"><u>In-Depth Analysis: Ring Wired Smart Video Doorbell Pros & Cons</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-wilds-of-gnawbone-insights-and-reviews-from-monster-hunter-world/"><u>Mastering the Wilds of Gnawbone: Insights & Reviews From 'Monster Hunter: World'</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-video-trailers-on-youtube-via-filmora-tools/"><u>Mastering Video Trailers on YouTube via Filmora Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/powerup-your-drive-the-fastest-and-most-economical-portable-car-battery-packs-reviewed-and-rated-here/"><u>PowerUp Your Drive – The Fastest & Most Economical Portable Car Battery Packs Reviewed and Rated Here</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolve-your-rainbow-six-siege-latency-problems-instantly/"><u>Resolve Your Rainbow Six Siege Latency Problems Instantly!</u></a></li>
+<li><a href="https://win11.techidaily.com/streamline-file-organization-with-multiple-windows-11-folders/"><u>Streamline File Organization with Multiple Windows 11 Folders</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-fitness-trackers-of-2024/"><u>The Best Fitness Trackers of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-omnicharge-omni-e-book-in-depth-analysis-of-a-multi-purpose-portable-power-bank-with-cutting-edge-qi-wireless-charge/"><u>The Omnicharge Omni E-Book: In-Depth Analysis of a Multi-Purpose Portable Power Bank with Cutting-Edge Qi Wireless Charge</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-premier-elearning-platforms-for-developers/"><u>The Premier eLearning Platforms for Developers</u></a></li>
+</ul></div>
 

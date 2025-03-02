@@ -1,7 +1,7 @@
 ---
 title: "Epic Ride Through a Zombified World: The Days Gone Analysis"
-date: 2024-09-04T18:44:58.265Z
-updated: 2024-09-05T18:44:58.265Z
+date: 2025-02-27T17:17:31.850Z
+updated: 2025-03-02T01:55:00.437Z
 categories:
   - BestProducts
 description: "This Article Describes Epic Ride Through a Zombified World: The Days Gone Analysis"
@@ -67,12 +67,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Flimsy and difficult to use**
 
  The first thing we noticed about the Docooler USB 2.0 12 Megapixel is how cheap it feels. The camera itself has a plastic, silver housing with a shiny silver focus ring on the end. It feels like it could break at any moment. The base is made of a transparent plastic, which is also available in blue and black. The plastic is so rigid that we expect it to break under regular use. Every time we adjusted the camera, the plastic creaked like a rusty door in a haunted house. Even in our short testing period, the joints started getting loose. We had to check several times just to make sure it wasn’t broken.
@@ -81,12 +75,6 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/a_8Gd66JN0RtfWzKKcRq95S8EmY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_6_Final_Horiz-1dd3a45479614483b0f4f5883f27094a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / James Huenink
 
 ## **Setup process: Awkward to position**
@@ -95,12 +83,6 @@ Lifewire / James Huenink
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera Quality: Not even close to advertised**
 
  The Docooler USB 2.0 12 Megapixel is advertised as a 12 megapixel camera capable of HD video, but it wasn’t even close to that. We tested the resolution by taking photos through photobooth, and they were only 640 x 480, or .31 megapixels. We tested the video resolution by using an online webcam testing tool, and it showed exactly the same results. The manufacturer claims the camera has 38 times more resolution than it actually does. We should have known that the manufacturer’s claims were too good to be true given the $8 asking price, but claiming a disparity that huge is really brazen.
@@ -111,26 +93,8 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/BxI5asxQavdUO5cT3iIpSIqM9Mk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_10_Final_Horiz-8acc6be9290c439496f17a63684115ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Underwhelming performance in video and audio**
 
  We used[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test out the video and audio performance using the webcam for recording and[conference calls](https://www.lifewire.com/top-free-web-conferencing-tools-2377241) . It was difficult to position the Docooler USB 2.0 12 Megapixel correctly, because by the time we clipped it on and sat down, the camera had slipped out of position. This happened several times before we finally resigned ourselves to using a tilted camera in our calls.
@@ -161,12 +125,6 @@ Lifewire / James Huenink
 
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  USB 2.0 12 Megapixel
@@ -184,14 +142,11 @@ Lifewire / James Huenink
 * Frame rate  30fps
 * What’s Included  Docooler USB 2.0 12 Megapixel, Quick Start Guide
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -200,4 +155,26 @@ Lifewire / James Huenink
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-visual-guide-to-aspect-ratios-on-platforms-like-youtube/"><u>[New] 2024 Approved The Visual Guide to ASPECT RATIOS on Platforms Like YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-navigating-the-best-ways-to-record-screens-on-hp-systems/"><u>[Updated] 2024 Approved Navigating the Best Ways to Record Screens on HP Systems</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-key-10-acoustic-amplifiers-for-android-ios-for-2024/"><u>[Updated] Key 10 Acoustic Amplifiers for Android, iOS for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-bid-farewell-to-clutter-quick-and-easy-edits-on-large-drafters/"><u>2024 Approved Bid Farewell to Clutter Quick & Easy Edits on Large Drafters</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-finest-portable-optical-and-tape-device-selections/"><u>2024'S Finest Portable Optical & Tape Device Selections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-review-of-gaomon-pd1560-digital-sketching-device-is-it-a-top-tier-art-pad/"><u>A Comprehensive Review of Gaomon PD1560 Digital Sketching Device: Is It a Top-Tier Art Pad?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/accessing-and-saving-tweets-visuals-in-your-android-device-for-2024/"><u>Accessing and Saving Tweets' Visuals in Your Android Device for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/achieve-fitness-goals-in-style-the-comprehensive-review-of-the-garmin-vivomove-hr-smartwatch/"><u>Achieve Fitness Goals in Style: The Comprehensive Review of the Garmin Vivomove HR Smartwatch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-innovation-unpacking-the-performance-and-price-of-arcshells-ar-5-review/"><u>Affordable Innovation: Unpacking the Performance and Price of ArcShell's AR-5 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-quality-in-tablets-a-comprehensive-look-at-the-new-amazon-fire-hd-8/"><u>Affordable Quality in Tablets: A Comprehensive Look at the New Amazon Fire HD 8</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-basics-tablet-propped-holder-review/"><u>Amazon Basic's Tablet Propped Holder Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazon-basics-tablet-stand-review-toss-a-tablet-stand-in-your-pocket/"><u>Amazon Basics Tablet Stand Review: Toss A Tablet Stand In Your Pocket</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazons-alexa-and-alphabets-google-assistant-face-off-determining-the-ultimate-ai-companer/"><u>Amazon's Alexa and Alphabet’s Google Assistant Face-Off: Determining the Ultimate AI Companer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-what-sets-echo-pop-aside-from-echo-dot-a-side-by-side-comparison/"><u>Discovering What Sets Echo Pop Aside From Echo Dot - A Side-by-Side Comparison</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-on-apple-iphone-6s-plus-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account On Apple iPhone 6s Plus?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-harvest-highs-celebrating-farming-gaming-innovation/"><u>In 2024, Harvest Highs Celebrating Farming Gaming Innovation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722547221370-in-depth-analysis-battery-powered-google-wireless-nest-doorbell-performance/"><u>In-Depth Analysis: Battery-Powered Google Wireless Nest Doorbell Performance</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/overcoming-windows-117-hp-printer-errors/"><u>Overcoming Windows 11/7 HP Printer Errors</u></a></li>
+</ul></div>
 

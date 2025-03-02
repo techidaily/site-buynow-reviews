@@ -1,7 +1,7 @@
 ---
 title: Unparalleled Quality, Top Performance in 430EX III-RT
-date: 2025-02-05T07:21:32.809Z
-updated: 2025-02-10T16:39:05.988Z
+date: 2025-02-27T01:13:50.772Z
+updated: 2025-03-02T06:49:21.686Z
 categories:
   - BestProducts
 description: This Article Describes Unparalleled Quality, Top Performance in 430EX III-RT
@@ -18,17 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/5taQkbn_ks7zo2LZcB9Gq8aAQmw=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## LG Gram 17
 
 ![LG Gram 17](https://www.lifewire.com/thmb/0zpnOrKLwqRRUpo-KPu36eRNdjQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_LG-Gram-17-Inch-Thin-Laptop-1-26891b187a0c4260bbbe391a08f0e413.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -127,10 +119,6 @@ Lifewire / Jonno Hill
 
  The IPS display also performs admirably by most other metrics that buyers will care about, such as a maximum brightness high enough to be usable outdoors. Additionally, the display looks great from off-angles, losing very little brightness when viewed from the sides, and showing no signs of color shift.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance** :**Ready to work (but not to game)**
 
  The LG Gram 17 performed well in our tests, managing a 3,851 score in PCMark 10\. As mentioned previously, this laptop is best suited for productivity-related tasks. The absence of a dedicated graphics card means that it won’t be able to keep up in anything beyond casual games and very light video editing workloads, but so long as you avoid these types of tasks you shouldn’t really notice any shortcomings. The 16GB of RAM and 8th gen Intel i7 made using the Gram 17 a fast, responsive experience in everyday and work-related tasks.
@@ -138,10 +126,6 @@ Lifewire / Jonno Hill
  We did nonetheless test the LG Gram 17 in some less demanding games, such as Slay the Spire, a roguelike card game with relatively undemanding graphics. We were able to play the game, but definitely noted some lag that made gameplay a little less pleasant.
 
 ![LG Gram 17](https://www.lifewire.com/thmb/4DSmBdI2ZVvCXO9PXT1iEnSCRxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-6-5381cd4656aa4307ba017acf8ce77c4b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -155,10 +139,6 @@ Lifewire / Jonno Hill
 
  Keep in mind though that while watching most standard 16:9 content, you aren’t taking advantage of all 17 inches of the display, and will see black bars on the top and bottom.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Network** :**Everything you’d expect**
 
  Wi-Fi on the LG Gram 17 gave us no trouble, offering a strong signal and speeds in any of the public and private environments we tested in. LG uses the Intel Wireless AC 9560 Wi-Fi adapter, the fastest of such chips currently on offer from Intel. This Wi-Fi adapter has a theoretical max speed of 1.73Gbps and offers a 2x2 antenna configuration, though you’re unlikely to ever hit such a high download speed.
@@ -169,10 +149,6 @@ Lifewire / Jonno Hill
 
 ![LG Gram 17](https://www.lifewire.com/thmb/Q5UD3HDcQsoXbP-_uvKqYsR9J6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-3-de338d995c0544ee8052e30def24ad5f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 ## **Battery** :**Beyond plentiful**
@@ -180,10 +156,6 @@ Lifewire / Jonno Hill
  The LG Gram 17 is equipped with a more than capable battery that offers up to 19.5 hrs of battery life, according to LG. In our tests, the laptop averaged around 14 hours during mixed daily use—still quite a great deal. This is likely due to a mixture of the larger than average battery, lack of a discrete graphics card, and an energy-efficient display. This is about as good as you can hope for in a laptop, to be honest, and a surprising achievement for such a light and thin one. If time between charges is a concern for you, take note.
 
  When running Battery Eater Pro to push the laptop to its limits, it kicked the bucket in just over 2 hours and 30 minutes. This may seem like a very short time, but it’s still considerably better than any of the[other 17-inch laptops](https://www.lifewire.com/best-17-inch-laptops-832683) we tested using this brutal benchmark.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: Standard Windows with some unique features**
 
@@ -200,10 +172,6 @@ Lifewire / Jonno Hill
 ## **Price: Lighter laptop, bigger price tag**
 
  At an MSRP of $1,700, the LG Gram 17 is not particularly affordable, and even less so when compared to similar options in the market. For this price, we would normally expect to get a discrete graphics card and the expanded possibilities that come with it. The premium you are paying for in this case isn’t sheer price-to-performance but portability and form factor. On these fronts, the LG Gram 17 definitely shines.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **LG Gram 17 vs. ASUS VivoBook Pro 17**
 
@@ -253,24 +221,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-building-brands-earning-dollars-a-comprehensive-guide-to-insta-sponsorships/"><u>[New] Building Brands, Earning Dollars A Comprehensive Guide to Insta-Sponsorships</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-elite-avc-playback-software-for-smartphones-and-pcs/"><u>[New] Elite AVC Playback Software for Smartphones and PCs</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-maximizing-your-videos-impact-with-perfect-post-times/"><u>[New] In 2024, Maximizing Your Videos' Impact with Perfect Post Times</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-triller-vs-tiktok-similarities-and-differences-a-complete-guide/"><u>[Updated] 2024 Approved Triller Vs. TikTok - Similarities & Differences - A Complete Guide</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-pictorial-pop-culture-their-tales/"><u>2024 Approved Pictorial Pop Culture Their Tales</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-upgrading-your-computers-graphics-unit/"><u>Comprehensive Guide to Upgrading Your Computer's Graphics Unit</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-look-at-the-acer-xfa2ns-design-philosophy-its-all-about-function/"><u>Comprehensive Look at the Acer XFA2n's Design Philosophy - It’s All About Function</u></a></li>
-<li><a href="https://win-able.techidaily.com/error-4201-resolved-mastering-the-fixes-for-a-smooth-genshin-experience/"><u>Error 4201 Resolved: Mastering the Fixes for a Smooth Genshin Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-enhanced-performance-and-design-upgrade-in-the-new-imac-m1-model/"><u>Exploring the Enhanced Performance & Design Upgrade in the New iMac M1 Model</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/from-basic-windows-10-to-advanced-64-bit-operating-system/"><u>From Basic Windows 10 to Advanced 64-Bit Operating System</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-c55-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Poco C55 Phone with Broken Screen</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-insightful-names-in-virtual-reality-ventures/"><u>In 2024, Insightful Names in Virtual Reality Ventures</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/nhl-19-analysis-engaging-virtual-hockey-experience/"><u>NHL '19 Analysis: Engaging Virtual Hockey Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/redefining-gaming-excellence-an-insightful-review-on-how-the-asus-zephyrus-g14-delivers-uncompromised-performance/"><u>Redefining Gaming Excellence: An Insightful Review on How the Asus Zephyrus G14 Delivers Uncompromised Performance</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolving-the-mysterious-black-display-problems-with-zoom-on-your-computer-the-2024-how-to-manual/"><u>Resolving the Mysterious Black Display Problems with Zoom on Your Computer - The 2024 How-To Manual</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-leading-speech-to-text-solutions-for-this-year/"><u>The Leading Speech-to-Text Solutions for This Year</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-motorola-one-hyper-analysis-elevating-mid-range-phones-with-a-blast-of-innovation-and-style/"><u>The Motorola One Hyper Analysis: Elevating Mid-Range Phones with a Blast of Innovation and Style</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>Updated In 2024, How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/value-for-money-e-reader-a-detailed-examination-of-the-2019-kindle-on-amazon/"><u>Value for Money E-Reader: A Detailed Examination of the 2019 Kindle on Amazon</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/2-proven-ways-to-increase-youtube-views-you-should-try-for-2024/"><u>[New] 12 Proven Ways to Increase YouTube Views You Should Try for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-quality-sd-card-for-sony-alpha-7s-ii/"><u>[New] 2024 Approved Top Quality SD Card for Sony Alpha 7S II</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-secrets-to-recording-high-quality-overwatch-matches-for-2024/"><u>[New] Secrets to Recording High-Quality Overwatch Matches for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-9gag-the-ultimate-resource-for-memetic-innovation/"><u>[Updated] 9GAG The Ultimate Resource for Memetic Innovation</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-advanced-recording-setup-gamers-guide-to-flawless-footage-for-2024/"><u>[Updated] Advanced Recording Setup Gamers' Guide to Flawless Footage for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-affordable-full-rotational-camera-systems-enhancing-media-for-2024/"><u>[Updated] Affordable, Full Rotational Camera Systems Enhancing Media for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-embedding-spotify-content-into-a-youtube-music-list/"><u>2024 Approved Embedding Spotify Content Into a YouTube Music List</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/darktable-a-cost-free-alternative-to-editing-high-quality-raw-photographs-on-your-apple-or-linux-machine/"><u>Darktable: A Cost-Free Alternative to Editing High-Quality RAW Photographs on Your Apple or Linux Machine</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ddpai-mini3-dashcam-a-surprisingly-entertaining-journey-on-the-roads/"><u>DDPai Mini3 Dashcam - A Surprisingly Entertaining Journey on the Roads</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-vs-surface-pro-showdown-which-tablet-outperforms/"><u>IPad Pro Vs. Surface Pro Showdown: Which Tablet Outperforms?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-chatgpt-in-google-spreadsheets-and-documents/"><u>Mastering ChatGPT in Google Spreadsheets & Documents</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-ion-audio-tailgater-plus-seamless-playback-and-enhanced-bass-with-easy-one-touch-controls/"><u>Review of Ion Audio Tailgater Plus: Seamless Playback and Enhanced Bass with Easy One-Touch Controls</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-buying-what-to-look-for-when-picking-the-perfect-activity-tracking-gadget/"><u>Smart Buying: What to Look for When Picking the Perfect Activity Tracking Gadget</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-midland-lxt500vp3-radio-series-a-deep-dive-into-its-extensive-capabilities-and-contrasting-actual-output/"><u>The Midland LXT500VP3 Radio Series: A Deep Dive Into Its Extensive Capabilities and Contrasting Actual Output</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-leading-wireless-journey-modems-ranked/"><u>Ultimate Guide: Leading Wireless Journey Modems Ranked</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-comprehensive-review-of-aphaca-bt69-compact-fm-bluetooth-radio-for-cars/"><u>Unveiling the Potential: Comprehensive Review of Aphaca BT69 Compact FM Bluetooth Radio for Cars</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-style-and-quality-of-taotronics-modern-led-lighting-solution/"><u>Unveiling the Style & Quality of TaoTronics Modern LED Lighting Solution</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/virtual-horizons-assessing-current-landscapes-and-trials/"><u>Virtual Horizons Assessing Current Landscapes & Trials</u></a></li>
 </ul></div>
 

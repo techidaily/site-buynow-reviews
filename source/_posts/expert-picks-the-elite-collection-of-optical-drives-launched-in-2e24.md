@@ -1,7 +1,7 @@
 ---
 title: "Expert Picks: The Elite Collection of Optical Drives Launched in 2E24"
-date: 2024-09-04T18:42:35.500Z
-updated: 2024-09-05T18:42:35.500Z
+date: 2025-02-23T02:03:27.640Z
+updated: 2025-03-02T09:20:51.667Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Picks: The Elite Collection of Optical Drives Launched in 2E24"
@@ -59,12 +59,6 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
  Watch Dogs: Legion is the latest installment in Ubisoft’s[Watch Dogs](https://www.liveabout.com/watch-dogs-2-cheats-codes-and-walkthroughs-4773695) series, and you can literally play as any character you encounter in the open world. Although Watch Dogs: Legion released without online gameplay (it became available in December 2020), you can play the campaign mode on PC or[console](https://www.lifewire.com/best-gaming-consoles-4154610) right now. Is this game worth the time and monetary investment? I played Watch Dogs: Legion for 30 hours to find out, evaluating its story, gameplay, graphics, to see how it compares to other titles.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setting and Plot: Fun, but predictable**
 
  Watch Dogs: Legion is set in a near-future version of London. The game accurately depicts landmarks, as well as the overall vibe of the city, but it’s a fictional version of London with a heavy tech theme. You have a few different enemies — a group consisting of private military, state operatives, and organized crime, as well as a hacker group called Zero Day. Zero Day pulls off a major terrorist operation in London. This causes the government to give power to a military group (Albion), and that group promptly implements a martial law type system of oppression.
@@ -81,12 +75,6 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
 ![Watch Dogs: Legion spider drone](https://www.lifewire.com/thmb/UOpYTu-WYh_4Z_Icu9ZD7aLW78Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-4-a1beafe90fe7494b84b19f97e292c2ab.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  Once you complete the opening scene, the game is presented like most open world games — pick a mission, drive to it, complete the mission, and repeat. There are plenty of distractions and side missions to take part in like collecting text and audio files, finding the tech points which allow you to upgrade, participating in bare-knuckle fighting, delivering packages, and drinking a beer, and applying paste-ups. You can also shop for clothes.
@@ -95,12 +83,6 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Gameplay: Cool character engine, redundant missions**
 
  Watch Dogs: Legion is an open world action-adventure game. I played on PC, and I used an[Xbox controller](https://www.lifewire.com/games-console-reviews-4102640) . The controls were tight, intuitive, and consistently responsive. It felt natural to run through the world, climb, and drive. I was especially impressed with the vehicles, as you can feel the difference when you’re driving a sports car versus when you’re driving a bus.
@@ -109,12 +91,6 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  On the plus side, you can play as any character you encounter, and you can switch characters anytime you like, except in the middle of missions. When you do switch, the characters have a conversation that feels kind of like a hand off. I thought this was a nice touch. You can also customize characters with clothes and new masks. However, since I was switching characters so often and I wasn’t playing online, I didn’t have much motivation to customize specific characters. The clothing felt tacked on, like more of an obligatory feature in an open world game rather than an actual benefit.
@@ -137,12 +113,6 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
  Erika Rawes / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: The usual $60**
 
  Watch Dogs: Legions sells for $60 for the standard edition. The Gold Edition sells for $100, and the Ultimate and Collectors Editions sell for $120 and $190, respectively. Everything above the standard edition comes with extra missions and a season pass, but these perks don’t really seem worth the added cost.
@@ -159,18 +129,6 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
  Watch Dogs: Legion feels like a missed opportunity, with a “play as anyone” feature that’s cool, but not cool enough to compensate for the lack of novelty. The addition of online play may offer more replayability, but as of launch, there isn’t enough to keep us coming back.
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Watch Dogs: Legion
@@ -185,8 +143,6 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +150,26 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-ditching-vimeo-the-ultimate-list-of-excellent-alternatives/"><u>[New] Ditching Vimeo The Ultimate List of Excellent Alternatives</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-overcoming-delayed-or-non-sending-videos-in-facebooks-popular-chat-application-for-mobile-users-for-2024/"><u>[New] Overcoming Delayed or Non-Sending Videos in Facebook's Popular Chat Application for Mobile Users for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-pro-gameplay-documentation-on-fbx-format/"><u>[New] Pro Gameplay Documentation on FBX Format</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mental-marathon-best-trivia-videos-online/"><u>[Updated] Mental Marathon Best Trivia Videos Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-examination-of-the-upgraded-third-generation-apple-tv-4k-device/"><u>A Closer Examination of the Upgraded Third-Generation Apple TV 4K Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-in-typing-in-depth-analysis-of-the-fellowes-microban-wired-keyboard/"><u>Affordable Excellence in Typing: In-Depth Analysis of the Fellowes Microban Wired Keyboard</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-hero9-black-the-gopros-top-tier-device/"><u>Assessing HERO9 Black - The GoPro's Top-Tier Device</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/breaking-down-the-top-ae-title-styles-for-2024/"><u>Breaking Down the Top AE Title Styles for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-the-right-streamer-roku-vs-amazon-fire-tv-stick-a-comprehensive-comparison/"><u>Choosing the Right Streamer: Roku vs Amazon Fire TV Stick - A Comprehensive Comparison</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-iphone-app-guide-navigating-with-google-maps/"><u>Comprehensive iPhone App Guide: Navigating with Google Maps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-jaco-smartpro-digital-tire-inflator-evaluation-your-ultimate-guide/"><u>Comprehensive Jaco SmartPro Digital Tire Inflator Evaluation - Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dissecting-the-solidity-and-strength-in-bose-headphone-tech/"><u>Dissecting the Solidity and Strength in Bose Headphone Tech</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-ultimate-protection-a-complete-guide-to-using-arlos-smart-home-security/"><u>Experience the Ultimate Protection: A Complete Guide to Using Arlo's Smart Home Security</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/finding-fame-on-insta-month-by-month-guide-to-reaching-the-million-mark-for-2024/"><u>Finding Fame on Insta Month by Month Guide to Reaching the Million Mark for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-vivo-v30-lite-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Vivo V30 Lite 5G Phones</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-10-enhancements-required-for-apples-ai-ecosystem-to-rival-the-dominance-of-openai-and-google-insights-from-zdnet/"><u>Top 10 Enhancements Required for Apple's AI Ecosystem to Rival the Dominance of OpenAI and Google: Insights From ZDNet</u></a></li>
+<li><a href="https://win-news.techidaily.com/troubleshooting-steps-resolving-unknown-device-scan-error-on-your-windows-pc-tips-from-yl-computing/"><u>Troubleshooting Steps: Resolving 'Unknown Device' Scan Error on Your Windows PC - Tips From YL Computing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-kindle-unlimited-membership-is-your-gateway-to-infinite-reading/"><u>Why Kindle Unlimited Membership Is Your Gateway to Infinite Reading?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/x-plane-cuatrocientos-once-reviewed-stunning-visuals-meet-cutting-edge-simulation-tech/"><u>X-Plane Cuatrocientos Once Reviewed: Stunning Visuals Meet Cutting-Edge Simulation Tech</u></a></li>
+</ul></div>
 

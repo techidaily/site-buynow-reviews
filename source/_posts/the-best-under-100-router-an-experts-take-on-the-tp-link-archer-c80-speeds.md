@@ -1,7 +1,7 @@
 ---
 title: The Best Under $100 Router - An Expert's Take on the TP-Link Archer C80 Speeds
-date: 2024-09-09T07:51:01.290Z
-updated: 2024-09-10T07:51:01.290Z
+date: 2025-02-27T04:33:48.401Z
+updated: 2025-03-01T21:16:39.112Z
 categories:
   - BestProducts
 description: This Article Describes The Best Under $100 Router - An Expert's Take on the TP-Link Archer C80 Speeds
@@ -9,12 +9,6 @@ excerpt: This Article Describes The Best Under $100 Router - An Expert's Take on
 thumbnail: https://www.lifewire.com/thmb/hnfn1HKm08TJxpBixlaHeqOfiug=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Discover the Best Long Range Traffic Monitors for Under $100 - Examined in Detail by Our Escort Passport Team
 
 3.8
@@ -23,12 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/hnfn1HKm08TJxpBixlaHeqOfiug=/400x300/fi
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Todd Braylor
 
  What We Like
@@ -53,18 +41,6 @@ Lifewire / Todd Braylor
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -86,12 +62,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -102,12 +72,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
@@ -120,12 +84,6 @@ Lifewire / Todd Braylor
 
  It reliably delivers on its promise of long-distance sensitivity.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Not exactly enhanced**
 
  The S55 has different modes designed to adjust to specific frequency bands and sensitivity levels for city or highway driving. You can quickly customize the settings by using the included quick reference guide. You can also turn off specific frequency bands if they tend to give a lot of false alerts.
@@ -172,8 +130,6 @@ Lifewire / Todd Braylor
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -181,4 +137,26 @@ Lifewire / Todd Braylor
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/rafting-quick-cut-channel-sequences-for-2024/"><u>[New] Crafting Quick-Cut Channel Sequences for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/anker-737-battery-savings-claim-your-exclusive-30-discount-on-portable-charger-zdnet/"><u>Anker 737 Battery Savings: Claim Your Exclusive $30 Discount on Portable Charger - ZDNet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/asus-vivobook-11-evaluation-compact-and-economical-full-featured-notebook/"><u>Asus VivoBook 11 Evaluation: Compact and Economical Full-Featured Notebook</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-vivo-y78plus-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Vivo Y78+? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/dicas-para-criar-um-sucesso-de-video-em-preto-e-branco-inspirado-em-cinema-classico/"><u>Dicas Para Criar Um Sucesso De Vídeo Em Preto E Branco Inspirado Em Cinema Clássico</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/easy-tutorial-converting-and-preserving-pictures-in-microsoft-docs/"><u>Easy Tutorial: Converting and Preserving Pictures in Microsoft Docs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-inside-the-world-of-ustream-plus-alternatives/"><u>In 2024, Inside the World of Ustream, Plus Alternatives</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-ultimate-list-of-safe-toy-drones/"><u>In 2024, The Ultimate List of Safe Toy Drones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/minecraft-game-insight-the-definitive-sandbox-experience-for-everyone/"><u>Minecraft Game Insight: The Definitive Sandbox Experience for Everyone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nixplay-w15a-snapshot-a-detailed-examination/"><u>Nixplay W15A Snapshot: A Detailed Examination</u></a></li>
+<li><a href="https://facebook.techidaily.com/operating-without-obstruction-whatsapps-functionality-post-privacy-policy/"><u>Operating Without Obstruction: WhatsApp's Functionality Post-Privacy Policy</u></a></li>
+<li><a href="https://howto.techidaily.com/play-store-stuck-on-downloading-of-realme-note-50-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Realme Note 50? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-showdown-in-depth-analysis-and-review-s10plus-vs-samsung-galaxy-s2/"><u>Samsung Showdown: In-Depth Analysis and Review - S10+ Vs Samsung Galaxy S2</u></a></li>
+<li><a href="https://win-able.techidaily.com/say-goodbye-to-stuttering-in-cyberpunk-2077-performance-improvements-unveiled/"><u>Say Goodbye to Stuttering in Cyberpunk 2077: Performance Improvements Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/size-doesnt-limit-performance-a-comprehensive-review-of-the-apple-iphone-12-mini/"><u>Size Doesn't Limit Performance: A Comprehensive Review of the Apple iPhone 12 Mini</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-enigma-of-affordability-a-deep-dive-into-the-multifaceted-identity-crisis-of-the-microsoft-surface-go-tablet/"><u>The Enigma of Affordability: A Deep Dive Into the Multifaceted Identity Crisis of the Microsoft Surface Go Tablet</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-uniden-r3-radar-scanner-a-look-at-its-sturdy-design-and-impressive-sensing-distance/"><u>Top-Rated Uniden R3 Radar Scanner: A Look at Its Sturdy Design and Impressive Sensing Distance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-review-of-the-tp-link-re305-your-guide-to-enhancing-home-wi-fi-with-an-ac1200-repeater/"><u>Ultimate Review of the TP-Link RE305: Your Guide to Enhancing Home Wi-Fi with an AC1200 Repeater</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/uncovering-the-magic-of-minecraft-an-inclusive-gaming-experience-for-players-of-all-ages/"><u>Uncovering the Magic of Minecraft: An Inclusive Gaming Experience for Players of All Ages</u></a></li>
+</ul></div>
 

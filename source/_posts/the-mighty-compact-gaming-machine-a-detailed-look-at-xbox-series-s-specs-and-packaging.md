@@ -1,7 +1,7 @@
 ---
 title: The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
-date: 2025-02-09T05:47:01.091Z
-updated: 2025-02-10T23:00:16.612Z
+date: 2025-02-25T12:09:35.579Z
+updated: 2025-03-01T17:00:20.853Z
 categories:
   - BestProducts
 description: This Article Describes The Mighty Compact Gaming Machine - A Detailed Look at Xbox Series S Specs and Packaging
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Beantech Bitwatch S1 Plus
 
@@ -50,10 +46,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/RIxQYWLMnyHkO9IcguCoRX11EbY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 [View On Amazon](https://www.amazon.com/Bit-Android-phones-Storage-leather/dp/B071VZMBH9/?tag=lifewire-onsite-prod-20&ascsubtag=4773105%7Cn9405fb50cb804e70a7f30ec502e40d9b21%7CB071VZMBH9)
@@ -78,10 +70,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/8rMhc1Lk5yFRFW4Zlt2K9cmPdFo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-4-01d7e5ff51aa47008d803513064f4a7a.jpg)
 
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design and Software: A surprising amount of features in this chunky watch**
 
@@ -113,10 +101,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/7GtX2IU-w4sJA-BTqQtHQThxaJo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-3-ade31135cd9d4fe0b6b01286941d2652.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 ## **Battery: It last longer than most flagship smartwatches**
@@ -128,10 +112,6 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
  The Bitwatch costs about $50, which is reasonable for its features and performance. You get reliable notifications and a passable heart rate monitor, as well as some basic functions like alarms and a speaker. If you want a cheap smartwatch, then the Bitwatch isn’t a bad pick, but $30 more can get you GPS and smarter notifications. If you are after a solid fitness tracker, both Garmin and[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) have[fantastic wearables](https://www.lifewire.com/phone-accessory-reviews-4102587) for under $100.
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: If you want more, it will cost more**
 
@@ -174,16 +154,16 @@ thumbnail: https://www.lifewire.com/thmb/FGI8xerKt3icyDzp_h8bugBgHPo=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-maximize-visuals-in-youtubespace-with-effective-tools/"><u>[New] In 2024, Maximize Visuals in YouTubespace with Effective Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-art-of-discrete-audio-erosion-in-audacity-for-2024/"><u>[Updated] The Art of Discrete Audio Erosion in Audacity for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-fix-ready-or-not-game-crashes-on-windows-tips-and-tricks/"><u>How to Fix 'Ready Or Not' Game Crashes on Windows: Tips and Tricks</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-whatsapp-messages-on-apple-iphone-xs-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>How to Track WhatsApp Messages on Apple iPhone XS Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-gopro-quik-is-it-the-best-video-editor-for-your-pc-plus-alternatives/"><u>New In 2024, GoPro Quik Is It the Best Video Editor for Your PC? (Plus Alternatives)</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguard-your-digital-footprint-in-the-age-of-fb/"><u>Safeguard Your Digital Footprint in the Age of FB</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-using-your-lenovo-tab-m10-hd-a-top-review-of-its-media-capabilities-in-2020/"><u>The Ultimate Guide to Using Your Lenovo Tab M10 HD: A Top Review of Its Media Capabilities in 2020</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-test-of-barnes-and-noble-nook-glowlight-3-the-perfect-device-for-evening-readers/"><u>The Ultimate Test of Barnes & Noble Nook Glowlight 3 – The Perfect Device for Evening Readers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-amazon-fire-tv-cube-top-performers-in-speedy-streaming/"><u>Ultimate Guide to Amazon Fire TV Cube: Top Performers in Speedy Streaming</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-best-top-race-rc-rock-crawler-mastering-all-terrain-adventures/"><u>Ultimate Guide to the Best Top Race RC Rock Crawler: Mastering All-Terrain Adventures</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-lenovo-thinkpad-x12-detachable-notebooktablet-combo-a-marvelous-2-in-1-experience-and-exquisite-keyboard-functionality/"><u>Unveiling the Lenovo ThinkPad X12 Detachable Notebook/Tablet Combo – A Marvelous 2-in-1 Experience & Exquisite Keyboard Functionality</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-complete-slomo-recording-app-analysis-consumers-for-2024/"><u>[New] Complete SloMo Recording App Analysis Consumers for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-culinary-craftsmanship-mastering-the-art-of-food-filmmaking-with-these-7-strategies/"><u>[New] In 2024, Culinary Craftsmanship Mastering the Art of Food Filmmaking with These 7 Strategies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-maximizing-twitter-video-quality-full-hd-tips/"><u>[Updated] In 2024, Maximizing Twitter Video Quality Full HD Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-2021-apple-macbook-pro-16-inch-with-m1-chip/"><u>Comprehensive Evaluation of the 2021 Apple MacBook Pro 16-Inch with M1 Chip</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-ultimate-key-locators-of-2024-expert-reviews-inside/"><u>Discover the Ultimate Key Locators of 2024 - Expert Reviews Inside!</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-video-watching-on-pc-free-media-player-extension-for-mov-formats/"><u>Enhance Video Watching on PC: Free Media Player Extension for MOV Formats!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-of-the-nintendo-switch-leading-the-mobile-gaming-revolution/"><u>Expert Evaluation of the Nintendo Switch - Leading the Mobile Gaming Revolution</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unmasking-the-top-10-clandestine-story-gurus/"><u>In 2024, Unmasking the Top 10 Clandestine Story Gurus</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/migrating-seamlessly-from-windows-7-to-the-latest-10/"><u>Migrating Seamlessly: From Windows 7 To The Latest 10</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigating-twitch-errors-determining-network-issues-versus-localized-problems/"><u>Navigating Twitch Errors: Determining Network Issues versus Localized Problems</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723204143062-step-by-step-solutions-to-resolve-origin-games-configuration-errors/"><u>Step-by-Step Solutions to Resolve Origin Games Configuration Errors</u></a></li>
 </ul></div>
 

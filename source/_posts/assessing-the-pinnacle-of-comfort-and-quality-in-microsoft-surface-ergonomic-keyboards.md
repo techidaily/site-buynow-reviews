@@ -1,7 +1,7 @@
 ---
 title: Assessing the Pinnacle of Comfort and Quality in Microsoft Surface Ergonomic Keyboards
-date: 2024-09-04T18:44:49.440Z
-updated: 2024-09-05T18:44:49.440Z
+date: 2025-02-27T22:56:11.955Z
+updated: 2025-03-02T10:07:50.008Z
 categories:
   - BestProducts
 description: This Article Describes Assessing the Pinnacle of Comfort and Quality in Microsoft Surface Ergonomic Keyboards
@@ -79,30 +79,12 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
@@ -115,38 +97,14 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
  The Sculpt’s main competition is the Microsoft Surface Ergonomic Keyboard. It’s a split-style ergonomic keyboard that connects wirelessly to a PC. Instead of using plastic materials, the Surface has a higher quality build that is not only more comfortable but slightly more sound-absorbent as well. And, better yet, the Surface uses the fan-favorite Alcantara fabric, an Italian material with a suede-like feel to it, as part of its wrist pad which makes it incredibly comfortable. Its numpad is attached, however, and it doesn’t include a magnetic riser. If you prefer your wrist sitting at a raised, more neutral angle, or if you like the idea of a detached numpad, the Sculpt is the clear winner here.
@@ -159,12 +117,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
  The Surface is a high-end keyboard, but that quality comes at a higher price. The Surface tends to retail for around $129, much more than the Sculpt which retails for around $80\. That said, it’s an upgrade in almost every way. If you’re on a budget, the Sculpt is a great option, but if you’re able to splurge, the Surface is our top pick for wireless ergonomic keyboards.
@@ -198,8 +150,6 @@ Lifewire / Emily Isaacs
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -207,4 +157,26 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-pinterest-avatar-recording-resolution-frame-rate-length/"><u>[Updated] 2024 Approved Pinterest Avatar Recording Resolution, Frame Rate, Length</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-discover-the-best-5-sd-cards-for-gopro-hero-8-and-7-for-2024/"><u>[Updated] Discover the Best 5 SD Cards for GoPro Hero 8 and 7 for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-comparative-analysis-inexpensive-cloud-storage-providers/"><u>[Updated] In 2024, Comparative Analysis Inexpensive Cloud Storage Providers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-enhance-privacy-and-speed-the-best-7-android-adblocks/"><u>[Updated] In 2024, Enhance Privacy & Speed The Best 7 Android AdBlocks</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-transform-your-video-presentation-with-updated-covers/"><u>[Updated] Transform Your Video Presentation with Updated Covers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2021-ipad-pro-featuring-m1-processor-incredible-computing-power-at-your-fingertips/"><u>2021 iPad Pro Featuring M1 Processor: Incredible Computing Power at Your Fingertips</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-ultimate-t5-eye-cutting-edge-action-video-capture/"><u>2024 Approved Ultimate T5 Eye Cutting-Edge Action Video Capture</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-premier-climate-alert-systems-for-eco-friendly-homes-reviewed/"><u>2024'S Premier Climate Alert Systems for Eco-Friendly Homes Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-list-of-essential-items-top-5-things-before-buying-a-vr-device/"><u>A List of Essential Items: Top 5 Things Before Buying a VR Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/achieving-perfection-unveiling-hitman-3s-lasting-impact-in-our-review/"><u>Achieving Perfection? Unveiling Hitman 3'S Lasting Impact in Our Review</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/advanced-methods-for-effortless-recording-of-your-google-classes-for-2024/"><u>Advanced Methods for Effortless Recording of Your Google Classes for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-radar-detectors-with-extended-monitoring-capabilities/"><u>Affordable Radar Detectors with Extended Monitoring Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-roku-streaming-experience-in-depth-guide-and-reviews/"><u>Affordable Roku Streaming Experience: In-Depth Guide and Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/agpteks-innovative-budget-friendly-mp3-solution/"><u>AGPTEK's Innovative, Budget-Friendly MP3 Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722619314518-exploring-the-capabilities-and-performance-the-2cuative-labs-sound-blaster-zxr-review-from-2013/"><u>Exploring the Capabilities and Performance: The 2Cuative Labs Sound Blaster ZXR Review From 2013</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-realme-11-5g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Realme 11 5G</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/top-5-gaming-chairs-on-a-shoestring-budget/"><u>Top 5 Gaming Chairs on a Shoestring Budget</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722764831055-top-reviews-for-like-a-dragon-from-the-yakuza-series-play-this-jrpg-masterpiece/"><u>Top Reviews for 'Like A Dragon' From the Yakuza Series - Play This JRPG Masterpiece!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlocking-insights-how-to-communicate-effectively-with-viewers-for-2024/"><u>Unlocking Insights How to Communicate Effectively with Viewers for 2024</u></a></li>
+</ul></div>
 

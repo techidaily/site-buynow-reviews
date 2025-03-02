@@ -1,7 +1,7 @@
 ---
 title: Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
-date: 2025-02-06T03:19:23.243Z
-updated: 2025-02-11T06:41:03.238Z
+date: 2025-02-23T07:45:59.944Z
+updated: 2025-03-01T20:06:57.219Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive TP-Link Archer C80 Analysis - Top Under $100 Routers
@@ -67,10 +67,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -83,10 +79,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -94,10 +86,6 @@ Lifewire / Erika Rawes
  Once you connect the antenna’s cable to your TV, you’ll need to find the best placement. This is perhaps the most difficult part of the setup process. My test home is in a wooded area, and I found the best placement was near or directly on the window. However,[to improve your antenna’s reception](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) , it’s usually a good idea to place the antenna high up in a room close to the home’s exterior (and nearest to the transmitter towers) and to avoid obstacles like walls and tree cover.
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
 
@@ -117,10 +105,6 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -128,10 +112,6 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -174,15 +154,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-in-depth-look-techniques-for-screen-capturing-on-android/"><u>[New] 2024 Approved In-Depth Look Techniques for Screen Capturing on Android</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-rhythm-revelations-mastering-music-for-visual-storytelling/"><u>[New] In 2024, Rhythm Revelations Mastering Music for Visual Storytelling</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-video-presence-mastery-of-channel-art-and-banner-sizes/"><u>[Updated] Elevate Your Video Presence Mastery of Channel Art and Banner Sizes</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/crucial-elements-for-online-tale-artistry/"><u>Crucial Elements for Online Tale Artistry</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-new-google-nest-hubs-capabilities-an-overview-in-light-of-no-integrated-camera-technology/"><u>Exploring the New Google Nest Hub's Capabilities - An Overview in Light of No Integrated Camera Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/galaxy-ford-f150-remote-control-truck-review-an-rc-truck-giant/"><u>Galaxy Ford F150 Remote Control Truck Review: An RC Truck Giant</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy S24? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/introducing-the-ultimate-video-doorbell-and-alert-system-by-arlo-an-expert-analysis/"><u>Introducing the Ultimate Video Doorbell and Alert System by Arlo - An Expert Analysis</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/keep-pace-with-technology-iphones-trade-up-system/"><u>Keep Pace with Technology: IPhone's Trade-Up System</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unlocking-metaverse-potential-top-7-innovations-to-master/"><u>2024 Approved Unlocking Metaverse Potential - Top 7 Innovations to Master</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/can-you-really-justify-the-cost-of-applecareplus-coverage/"><u>Can You Really Justify the Cost of AppleCare+ Coverage?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-tp-link-re505x-wireless-range-extender-in-depth-review/"><u>Comprehensive Analysis: TP-Link RE505X Wireless Range Extender - In-Depth Review</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/deciphering-srt-cues-in-oses-with-ease/"><u>Deciphering SRT Cues in OSes with Ease</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-find-out-if-xbox-live-is-currently-active-or-downed/"><u>How to Find Out if Xbox Live Is Currently Active or Downed</u></a></li>
+<li><a href="https://win-dash.techidaily.com/hp-deskjet-3520-driver-download-guide-step-by-step-instructions/"><u>HP Deskjet 3520 Driver Download Guide: Step-by-Step Instructions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-bitevideo-innovator/"><u>In 2024, BiteVideo Innovator</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-elevating-your-tiktok-pics-with-simple-edits/"><u>In 2024, Elevating Your TikTok Pics with Simple Edits</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-xiaomi-14-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Xiaomi 14</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-tecno-pova-5-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Tecno Pova 5 to PC? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-creativity-and-multitasking-a-detailed-review-of-samsung-galaxy-tab-s6s-innovative-capabilities/"><u>Mastering Creativity & Multitasking: A Detailed Review of Samsung Galaxy Tab S6's Innovative Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nintendos-console-revolutionized-discover-how-the-switch-lite-delivers-quality-entertainment-for-less/"><u>Nintendo's Console Revolutionized: Discover How the Switch Lite Delivers Quality Entertainment for Less!</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/ps5-worthiness-explored-here-are-4-factors-you-need/"><u>PS5 Worthiness Explored - Here Are 4 Factors You Need</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sonic-and-streamlining-the-roku-evolution/"><u>Sonic and Streamlining: The Roku Evolution</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-guide-setting-up-and-using-apples-airplay-feature-with-your-imac-4k5k/"><u>Step-by-Step Guide: Setting Up and Using Apple's AirPlay Feature with Your iMac (4K/5K)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-amazon-basics-tablet-holder-compact-design-fits-right-in-your-pocket/"><u>Ultimate Guide: Amazon Basics Tablet Holder - Compact Design Fits Right in Your Pocket!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-and-testing-the-lg-um7300-is-it-worth-the-money-for-basic-4k-content/"><u>Unboxing and Testing the LG UM7300: Is It Worth the Money for Basic 4K Content?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unraveling-the-mysteries-of-bloodborne-a-comprehensive-review/"><u>Unraveling the Mysteries of Bloodborne: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-truth-behind-sea-techs-usb-blu-ray-writer-a-rigorous-review/"><u>Unveiling the Truth Behind Sea Tech's USB Blu-Ray Writer: A Rigorous Review</u></a></li>
 </ul></div>
 

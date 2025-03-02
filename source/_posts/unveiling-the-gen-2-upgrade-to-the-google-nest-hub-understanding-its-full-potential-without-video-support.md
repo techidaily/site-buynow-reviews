@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Gen 2 Upgrade to the Google Nest Hub - Understanding Its Full Potential Without Video Support
-date: 2025-02-05T19:26:40.074Z
-updated: 2025-02-11T01:03:55.975Z
+date: 2025-02-25T12:53:47.908Z
+updated: 2025-03-01T17:26:26.574Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Gen 2 Upgrade to the Google Nest Hub - Understanding Its Full Potential Without Video Support
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/_nOB6lzooA58y-fATbEsfRW2Rn8=/400x300/fi
 ## Cyberpunk 2077
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/lg-rMa42Ti9heFLfXVc2qNkjwk0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -50,10 +46,6 @@ Andy Zahn / Lifewire
 [View On Amazon $55](https://www.amazon.com/dp/B07T8BP118/?tag=lifewire-onsite-prod-20&ascsubtag=5113844%7Cn1caa6f424ed249b0ba9a31e582ec71b217%7CB07T8BP118) [View On Steampowered.com](https://store.steampowered.com/app/1091500/Cyberpunk%5F2077/) [View On Gamestop.com](https://www.gamestop.com/video-games/pc-gaming/games/products/cyberpunk-2077/11094594.html)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Cyberpunk 2077
 
@@ -101,10 +93,6 @@ Andy Zahn / Lifewire
  There is clearly a lot more polish put on the main story missions than on some other parts of the game, and if you follow it closely, the flaws of Cyberpunk 2077 don’t show quite so much. You get to experience the massive open world of Night City in a way that makes narrative sense and see the most exciting set-piece sequences. With that said, there are some really entertaining side stories to be found if you venture off the straight and narrow path of the main campaign.
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Gameplay: Fun, but deeply flawed
 
@@ -174,10 +162,6 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 Andy Zahn / Lifewire
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Mature content: Pushing the boundaries
 
  It must be mentioned that Cyberpunk 2077 earns its mature rating. Parents and players alike would do well to head the descriptors of that rating, as all of them are well deserved. There are options to ameliorate this in some respects, but only to a limited extent. The fact is that Cyberpunk 2077 is an imagining of a dark and disturbing future, and the game forces players to confront the consequences should humanity go down such a road.
@@ -206,10 +190,6 @@ Andy Zahn / Lifewire
 
  An alternative worth considering if you have a robust high-speed internet connection is streaming the game on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) . This will allow you to experience the game at its best without having to invest in a two thousand dollar PC. However, it does leave your ability to play the game at the mercy of your ability to access a strong internet connection.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Graphics: Ahead of its time
 
  The star of the show in Cyberpunk 2077 are the visuals, and if you have a PC with the hardware to render the game at its maximum quality while maintaining playable frame rates the world of Night City is absolutely jaw-dropping. Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
@@ -230,17 +210,9 @@ Andy Zahn / Lifewire
 
 Andy Zahn / Lifewire
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Multiplayer: Absent for the moment
 
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price: A refreshing lack of micro-transactions
 
@@ -259,10 +231,6 @@ Andy Zahn / Lifewire
  **An open-world RPG with enormous potential that’s sadly incomplete and unpolished.**
 
  Cyberpunk 2077 had enormous potential, but it launched long before it was complete and the result is a deeply conflicting experience. Game-breaking bugs, performance issues, missing features, and demanding hardware requirements make it difficult to recommend, but there is the core of something great lying within. There are hundreds of hours of content to enjoy if you can temper your expectations and employ a saintly degree of patience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -288,24 +256,22 @@ Andy Zahn / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/movie-clip-integration-into-youtubes-vast-network-for-2024/"><u>[New] IMovie Clip Integration Into YouTube's Vast Network for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-craft-the-ultimate-outro-with-pro-maker-advice/"><u>[New] In 2024, Craft the Ultimate Outro with Pro Maker Advice</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-hushing-up-unwanted-noise-on-skype/"><u>[Updated] Hushing Up Unwanted Noise on Skype</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-boost-engagement-with-effective-wirecast-broadcasts-on-fb/"><u>[Updated] In 2024, Boost Engagement with Effective Wirecast Broadcasts on FB</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-cinematic-zoom-effect-focus-on-film/"><u>[Updated] The Cinematic Zoom Effect Focus on Film</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-flying-toys-for-kids-and-family-fun/"><u>Best Flying Toys for Kids & Family Fun</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fixing-iphone-error-14-heres-your-ultimate-guide-to-a-smooth-screen/"><u>Fixing iPhone Error 14? Here's Your Ultimate Guide to a Smooth Screen</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-infinix-smart-7-hd-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-the-lg-k92s-5g-technology-a-game-changer-or-just-hype-a-comprehensive-review/"><u>Is the LG K92's 5G Technology a Game-Changer or Just Hype? A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-performance-switching-from-windows-8-to-windows-11/"><u>Maximizing Performance: Switching From Windows 8 to Windows 11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-best-of-digital-entertainment-the-8-premier-google-play-pass-games/"><u>Navigating the Best of Digital Entertainment: The 8 Premier Google Play Pass Games</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/netgear-ex3700-ac750-range-extender-unveiled-comprehensive-evaluation-and-user-guide/"><u>Netgear EX3700 AC750 Range Extender Unveiled: Comprehensive Evaluation and User Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/plug-play-and-sing-an-in-depth-review-of-the-colorful-singing-machine-sml385btbk/"><u>Plug, Play, and Sing: An In-Depth Review of the Colorful Singing Machine SML385BTBK</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/simplify-your-pets-diet-routine-with-arfs-innovative-automatic-feeder/"><u>Simplify Your Pet’s Diet Routine with Arf’s Innovative Automatic Feeder</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/sony-hdrcx405-review-price-friendly-recording-options/"><u>Sony HDRCX405 Review: Price-Friendly Recording Options</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-definitive-review-of-apple-airtag-superior-device-for-managing-your-belongings-with-an-iphone/"><u>The Definitive Review of Apple AirTag: Superior Device for Managing Your Belongings with an iPhone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-hp-stream-14-balancing-cost-and-capabilities-in-a-budget-pc/"><u>The Ultimate Guide to the HP Stream 14: Balancing Cost and Capabilities in a Budget PC</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-oppo-a78-5g-by-drfone-android/"><u>Three Ways to Sim Unlock Oppo A78 5G</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-rated-gaming-rigs-in-2-2024-options-from-just-500-to-over-4k/"><u>Top-Rated Gaming Rigs in 2지킨 2024: Options From Just $500 to Over $4K</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-premium-quick-insight-for-pics-on-win-11/"><u>[New] In 2024, Premium Quick Insight for Pics on Win 11</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-building-blocks-for-a-stellar-documentary-storyline/"><u>[Updated] Building Blocks for a Stellar Documentary Storyline</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-demystifying-t-series-income-streams-via-youtube-platforms-for-2024/"><u>[Updated] Demystifying T-Series Income Streams via YouTube Platforms for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-essential-instagram-repost-strategies/"><u>2024 Approved Essential Instagram Repost Strategies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-ringtone-overhaul-transforming-your-phones-sound-identity/"><u>2024 Approved Ringtone Overhaul Transforming Your Phone's Sound Identity</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/are-minecraft-realms-a-game-changer-in-multiplayer-experiences/"><u>Are Minecraft Realms a Game Changer in Multiplayer Experiences?</u></a></li>
+<li><a href="https://article-files.techidaily.com/breathe-life-into-your-visual-narrative-free-text-animation-for-2024/"><u>Breathe Life Into Your Visual Narrative Free Text Animation for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/expertly-manipulating-colors-in-video-edits-for-2024/"><u>Expertly Manipulating Colors in Video Edits for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/free-nfl-sunday-games-on-verizon-could-you-be-eligible/"><u>Free NFL Sunday Games on Verizon: Could You Be Eligible?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-fit-with-nintendo-gaming-the-ideal-starting-point-for-fitness-enthusiasts/"><u>Get Fit with Nintendo Gaming: The Ideal Starting Point for Fitness Enthusiasts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/handheld-steam-gaming-without-the-steam-deck-top-alternatives-explored/"><u>Handheld Steam Gaming Without the Steam Deck: Top Alternatives Explored</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-construct-the-perfectly-pristine-desktop-setup-for-optimal-efficiency-and-speed/"><u>How to Construct the Perfectly Pristine Desktop Setup for Optimal Efficiency and Speed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-restore-the-lost-art-of-channel-surfing-on-streaming-services-bring-back-your-own-shuffle-button/"><u>How to Restore the Lost Art of Channel Surfing on Streaming Services - Bring Back Your Own 'Shuffle Button'</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-nokia-g22-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Nokia G22</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-game-selection-amidst-rising-scores-strategies-for-identifying-top-notch-games-in-todays-market/"><u>Mastering Game Selection Amidst Rising Scores: Strategies for Identifying Top-Notch Games in Today's Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-nintendo-switchs-local-wireless-multiplayer-tips-and-top-games/"><u>Mastering Nintendo Switch's Local Wireless Multiplayer: Tips & Top Games</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-value-top-5-tips-for-getting-the-most-from-apple-tvplus/"><u>Maximizing Value: Top 5 Tips for Getting the Most From Apple TV+</u></a></li>
 </ul></div>
 

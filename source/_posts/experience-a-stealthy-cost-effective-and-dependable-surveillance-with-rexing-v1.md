@@ -1,7 +1,7 @@
 ---
 title: Experience a Stealthy, Cost-Effective, and Dependable Surveillance with Rexing V1
-date: 2025-02-07T23:24:37.264Z
-updated: 2025-02-11T07:41:52.724Z
+date: 2025-02-27T00:38:09.516Z
+updated: 2025-03-02T02:55:08.399Z
 categories:
   - BestProducts
 description: This Article Describes Experience a Stealthy, Cost-Effective, and Dependable Surveillance with Rexing V1
@@ -45,10 +45,6 @@ Lifewire / Danny Chadwick
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Danny Chadwick
 
 [View On Amazon](https://www.amazon.com/dp/B07DW7W51T/?tag=lifewire-onsite-prod-20&ascsubtag=4770582%7Cn71152a6f6b7242f1815da90e8e97d54a08%7CB07DW7W51T) [View On Walmart](https://www.walmart.com/ip/Z-EDGE-Z3-Plus-1440P-A12-Chipset-3-Inch-Screen-Dash-Cam/213396513)
@@ -73,10 +69,6 @@ Lifewire / Danny Chadwick
  It has a couple of minor drawbacks, like only having one[choice for mounting](https://www.lifewire.com/best-car-gps-trackers-4158961) and a mere 20-minute battery life when not connected to power. But if you’re in the market for a dashcam, the Z3 Plus should be among the devices you’re considering.
 
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Small but solid**
 
@@ -103,10 +95,6 @@ Lifewire / Danny Chadwick
  This[dashboard camera](https://www.lifewire.com/types-of-dash-cameras-534889) can draw power from a[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) or through a 12V socket (your car’s cigarette lighter). The included 12V adapter has two USB ports. This is convenient because it can double as a power supply for mobile devices like smartphones and tablets.
 
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Super straightforward**
 
@@ -138,10 +126,6 @@ Lifewire / Danny Chadwick
 
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Fair price for a fair product**
 
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
@@ -161,10 +145,6 @@ Lifewire / Danny Chadwick
  **A durable, reliable dashboard camera that captures high-quality footage.**
 
  The Z-Edge Z3 Plus is easy to set up, intuitive to use, captures clear video footage for a reasonable price. We would like to have seen a second mounting option to the suction cup and a longer-lasting battery, but those are minor quibbles in light of this device’s reliable performance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,22 +178,18 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-perfecting-your-recording-setup-pc-and-macs-best-software/"><u>[New] In 2024, Perfecting Your Recording Setup PC and Mac's Best Software</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-irecorder-pro-in-depth-analysis-for-2024/"><u>[New] IRecorder Pro In-Depth Analysis for 2024</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/easy-methods-how-to-transfer-pictures-from-apple-iphone-15-pro-to-pc-drfone-by-drfone-transfer-from-ios/"><u>Easy Methods How To Transfer Pictures From Apple iPhone 15 Pro to PC | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-initiate-your-virtual-presence-with-ease-live-streaming-101/"><u>In 2024, Initiate Your Virtual Presence with Ease Live Streaming 101</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-quick-diy-filming-fixes-the-top-5-hacks-to-try-now/"><u>In 2024, Quick DIY Filming Fixes The Top 5 Hacks to Try Now</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/in-2024-the-best-boxing-streaming-websites-for-the-latest-match-coverage/"><u>In 2024, The Best Boxing Streaming Websites for the Latest Match Coverage</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inside-the-netgear-c3700-device-the-ultimate-router-with-built-in-modem/"><u>Inside the Netgear C3700 Device - The Ultimate Router with Built-In Modem</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/key-considerations-for-selecting-the-best-fitness-band-or-watch/"><u>Key Considerations for Selecting the Best Fitness Band or Watch</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kodaks-zoom-lens-for-affordable-quality-photos/"><u>Kodak's Zoom Lens for Affordable, Quality Photos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lenovo-p11-pro-review-a-nice-tablet-with-some-drawbacks/"><u>Lenovo P11 Pro Review: A Nice Tablet With Some Drawbacks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/motorolas-masterpiece-the-ultimate-guide-to-the-moto-g-stylus-your-wallet-friendly-choice/"><u>Motorola's Masterpiece: The Ultimate Guide to the Moto G Stylus - Your Wallet Friendly Choice!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/netgears-nighthawk-x10-ad7200-a-thorough-review-of-its-high-speed-wi-fi-wonders/"><u>Netgear's Nighthawk X10 (AD7200) - A Thorough Review of Its High-Speed Wi-Fi Wonders!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/newest-updates-compatible-drivers-for-the-brother-hl-2240-printer-on-pcs-with-windows/"><u>Newest Updates: Compatible Drivers for the Brother HL-2240 Printer on PCs with Windows</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/quality-at-cost-2024s-top-cams/"><u>Quality at Cost: 2024'S Top Cams</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/resolving-chatgpt-access-issues-quickly/"><u>Resolving ChatGPT Access Issues Quickly</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/stop-autonomous-restarts-win11-strategy/"><u>Stop Autonomous Restarts: Win11 Strategy</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-battle-of-titans-how-does-the-apple-iphone-15-pro-stack-up-to-the-pro-max-edition/"><u>The Battle of Titans: How Does the Apple iPhone 15 Pro Stack Up to the Pro Max Edition?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-explore-cost-free-professional-cam-screen-recorders/"><u>[Updated] Explore Cost-Free, Professional Cam Screen Recorders</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quadcopter-showdown-dji-pro-and-hero-4-black/"><u>2024 Approved Quadcopter Showdown DJI Pro and Hero 4 Black</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/6-effective-strategies-for-recovering-backing-up-or-deleting-unsaved-excel-files/"><u>6 Effective Strategies for Recovering, Backing Up, or Deleting Unsaved Excel Files</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-oppo-find-x6-pro-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Oppo Find X6 Pro Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-xiaomi-14-ultra-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Xiaomi 14 Ultra to iPhone | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-pick-premium-laptop-stand-selections/"><u>Leading Pick: Premium Laptop Stand Selections</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premier-power-supply-units-reviewed-choosing-the-ideal-psu-for-your-system/"><u>Premier Power Supply Units Reviewed: Choosing the Ideal PSU for Your System</u></a></li>
+<li><a href="https://win-answers.techidaily.com/struggling-with-fortnite-login-errors-get-back-to-gaming-faster/"><u>Struggling with Fortnite Login Errors? Get Back to Gaming Faster!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-ranking-gopro-cameras-a-comprehensive-guide/"><u>Top-Ranking GoPro Cameras : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-home-workout-gear-a-comprehensive-guide/"><u>Top-Rated Home Workout Gear : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-photography-illumination-sets-of-2024-a-comprehensive-review/"><u>Top-Rated Photography Illumination Sets of 2024: A Comprehensive Review</u></a></li>
+<li><a href="https://win-able.techidaily.com/transforming-audio-files-from-wav-to-ogg-format-with-easy-steps-both-offline-and-online-solutions/"><u>Transforming Audio Files From WAV to Ogg Format with Easy Steps - Both Offline & Online Solutions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-premiere-selection-of-2023s-finest-qled-screens/"><u>Unveiling the Premiere Selection of 2023'S Finest QLED Screens</u></a></li>
 </ul></div>
 

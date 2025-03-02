@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Gaomon PD1560 Graphic Pad - A Top-Notch Pen Display Reviewed
-date: 2024-09-04T18:46:20.485Z
-updated: 2024-09-05T18:46:20.485Z
+date: 2025-02-25T22:35:11.648Z
+updated: 2025-03-01T20:22:02.404Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Gaomon PD1560 Graphic Pad - A Top-Notch Pen Display Reviewed
@@ -66,12 +66,6 @@ Andy Zahn / Lifewire
 
  When it first arrived on the[PlayStation 3](https://www.lifewire.com/playstation-3-all-you-need-to-know-2717718) in 2009, Demon’s Souls was adored by critics but passed over by general audiences. The brilliance of developer From Software went unrecognized until they brought the series back with Dark Souls, and from there the Souls games grew into a gaming phenomenon. Now, Bluepoint Games has rebuilt Demon’s Souls from the ground up to be one of the biggest titles to release at launch for the[PS5](https://www.lifewire.com/sony-playstation-5-review-5088394) , and 12 years later this lovingly authentic remake aims to deliver all the murderously difficult gameplay of the original with a fresh coat of next-gen graphics.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Gameplay: Prepare for casualties
 
  Let me start by saying that though I have long been a fan of the Souls games, I have never been much good at them. I love playing them for their atmosphere and creative design, and the incredible challenge they present, but it requires great patience and perseverance. I wouldn’t have it any other way.
@@ -92,12 +86,6 @@ Andy Zahn / Lifewire
 
  Demon’s Souls on PS5 is stunning to behold, yet has lost none of the atmosphere of oppressive gloom that fans of the PS3 classic adored.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Graphics: Spectacular Gothic grandeur
 
  Demon’s Souls on PS5 is stunning to behold, yet has lost none of the atmosphere of oppressive gloom that fans of the PS3 classic adored. The amped-up fidelity of this remake, along with its higher frame rate, only adds to the gloomy Gothic aesthetic and helps to immerse you in the medieval post-apocalyptic world. Every time I walked out of a gloomy corridor or cavern to discover a new grand vista of fantastic decaying splendor in hyper-realistic detail, it was truly jaw-dropping, and all the more rewarding for the grueling slog required to reach it.
@@ -136,38 +124,14 @@ Andy Zahn / Lifewire
 
  There’s a wide variety of armor and weapons hidden throughout the game, though your chosen build will largely determine which gear you will use on a particular playthrough. Be sure to collect crafting materials, since they’re used for leveling up your weapons. Souls are spent on upgrading your character’s stats, and both character and weapon upgrades become progressively more expensive as you progress.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: The cost of next-gen gaming
 
  With an MSRP of $70, Demon’s Souls is more expensive now than when it originally launched more than a decade ago. Though the price may seem high, Demon’s Souls is something of a special case. It’s well worth the cost of admission, and it doesn’t hurt that there are no microtransactions or other hidden fees.
 
 ![Demon's Souls](https://www.lifewire.com/thmb/nrL-L23OmKNq6svUEwmoReap2Ow=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Demons_Souls_05-4df0f853dcb34652888c8b408ccd93be.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Andy Zahn / Lifewire
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Demon’s Souls vs. Assassin’s Creed: Valhalla
 
  Maybe it’s odd to compare Demon’s Souls with[Assassin’s Creed: Valhalla](https://www.lifewire.com/assassin-s-creed-valhalla-review-an-epic-viking-adventure-across-the-medieval-world-5086782) , but at their core, both are third-person action-adventure RPGs that were released around the same time. Valhalla is much more welcoming to new players than Demon’s Souls. It has variable difficulty levels and in general is a very accessible experience compared to the trial by fire learning curve of Demon's Souls. It’s also $10 cheaper and available on most platforms, while Demon’s Souls is only on the PlayStation 5\.
@@ -184,18 +148,6 @@ Andy Zahn / Lifewire
 
  Demon’s Souls on the PS5 is the remake this classic game deserved, bringing this pioneering title to a new generation of gamers with a fresh coat of paint. Its steep learning curve will challenge your determination to progress through its Gothic splendor, but the promise of plunder and grand vistas ahead push you to continue despite casualty after despair-inducing casualty.
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Demon's Souls
@@ -213,8 +165,6 @@ Andy Zahn / Lifewire
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -222,4 +172,26 @@ Andy Zahn / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/xpressiveness-enhancing-youtube-comments-via-emojis-for-2024/"><u>[New] Expressiveness Enhancing YouTube Comments via Emojis for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-a-thorough-guide-to-thriving-in-stardews-hidden-landmark-ginger-isle/"><u>[Updated] In 2024, A Thorough Guide to Thriving in Stardew's Hidden Landmark Ginger Isle</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/anker-powerdrive-2-review/"><u>Anker PowerDrive 2 Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-compelling-youtube-content-through-split-screens-for-2024/"><u>Crafting Compelling YouTube Content Through Split-Screens for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/elevate-your-video-aesthetics-with-obss-customizable-luts-for-2024/"><u>Elevate Your Video Aesthetics with OBS's Customizable LUTs for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/entry-level-drone-excellence-reviewing-the-syma-xx5c-racing-quadcopters-value-and-performance/"><u>Entry-Level Drone Excellence: Reviewing the SYMA X#X5C Racing Quadcopter's Value and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-future-of-wireless-with-asus-zenwifi-ax6600-thorough-review-and-setup-guide/"><u>Experience the Future of Wireless with ASUS ZenWifi AX6600: Thorough Review and Setup Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expertise-at-your-fingertips-the-ultimate-beginners-tripod-guide/"><u>Expertise at Your Fingertips: The Ultimate Beginner's Tripod Guide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/full-tutorial-to-bypass-your-oneplus-12-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your OnePlus 12 Face Lock?</u></a></li>
+<li><a href="https://games-able.techidaily.com/guide-to-canceling-digital-xbox-purchase/"><u>Guide to Canceling Digital Xbox Purchase</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-accelerate-youtube-visibility-select-top-8-rank-watchers/"><u>In 2024, Accelerate YouTube Visibility - Select Top 8 Rank Watchers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/make-every-trip-memorable-with-these-tools/"><u>Make Every Trip Memorable with These Tools</u></a></li>
+<li><a href="https://extra-support.techidaily.com/navigating-your-way-through-effective-spotify-promotion-techniques-for-2024/"><u>Navigating Your Way Through Effective Spotify Promotion Techniques for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/pros-vs-cons-unveiling-whats-inside-pidgin-instant-messenger/"><u>Pros Vs. Cons: Unveiling What's Inside Pidgin Instant Messenger</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/studiofx-super-brighter-set-reliable-and-powerful/"><u>StudioFX Super Brighter Set: Reliable & Powerful</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-netgear-nighthawk-x6-as-your-ideal-wi-fi-mesh-expander-a-detailed-review-and-breakdown/"><u>The Netgear Nighthawk X6 as Your Ideal Wi-Fi Mesh Expander: A Detailed Review and Breakdown</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-smart-workers-playbook-6-steps-for-an-ai-savvy-career-path/"><u>The Smart Worker's Playbook: 6 Steps for an AI-Savvy Career Path</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-budget-friendly-gaming-keyboards-fellowes-microban-wired-model-analysis/"><u>Top Budget-Friendly Gaming Keyboards: Fellowes Microban Wired Model Analysis</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-from-chrome-os-to-linux-a-comprehensive-installation-guide/"><u>Updated In 2024, From Chrome OS to Linux A Comprehensive Installation Guide</u></a></li>
+</ul></div>
 

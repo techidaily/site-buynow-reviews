@@ -1,7 +1,7 @@
 ---
 title: Top Ergonomic Keyboard Picks for Maximum Comfort
-date: 2024-09-04T18:45:30.777Z
-updated: 2024-09-05T18:45:30.777Z
+date: 2025-02-26T02:20:53.956Z
+updated: 2025-03-02T05:16:55.794Z
 categories:
   - BestProducts
 description: This Article Describes Top Ergonomic Keyboard Picks for Maximum Comfort
@@ -63,12 +63,6 @@ thumbnail: https://www.lifewire.com/thmb/ae8RaGxhezzEqpugk1_Oz8ylJxo=/400x300/fi
 
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Small, Compact, and Light
 
  Unlike traditional, full-size ergonomic keyboards, the MoKo is small—hardly larger than your hand when folded down to its collapsed size. Extended out, it’s only about a foot in length. It’s perfect for tossing in a purse, backpack,[laptop bag](https://www.lifewire.com/best-laptop-bags-to-buy-4072282) , or pocket and taking along on any commute or adventure. Better yet, thanks to a convenient magnet along the edges of the frame, there’s no fear of it accidentally opening up and being damaged in transit. The soft-grip back not only offers additional protection but also ensures that it’s not likely to shift on any surface upon which you’re typing. With these combined features, it’s a wonderful little travel companion.
@@ -79,24 +73,12 @@ thumbnail: https://www.lifewire.com/thmb/ae8RaGxhezzEqpugk1_Oz8ylJxo=/400x300/fi
 
  The hotkeys on the keyboard are located on the top row. These include several excellent built-in functions, such as cut, skipping forward or back in multimedia tracks, pausing music, increasing or decreasing volume, opening a new search, and several others. These are easy to use thanks to the function key on the lower-left hand side of the keyboard. One drawback, however, is the blue color used to identify these built-in functions is somewhat difficult to see in low-light conditions.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Setup Process and Connectivity: Broad Device Compatibility
 
  The MoKo Universal Foldable Bluetooth Keyboard arrives in a small box with the keyboard itself, a small one-year free warranty card, a pamphlet with setup instructions, and a micro USB charging cable. One piece we wish it included is a stand for smartphones. While it’s compatible with them, it’s not very convenient to type on them without one. We’d highly recommend getting a separate stand if you’re considering this keyboard for a smartphone.
 
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/kSFKzJNiMoWHKHqKIec3JqHwGpw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_04-0b2a547be6764125ab80c1db9df177bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
  The MoKo uses[Bluetooth 3.0 technology](https://www.lifewire.com/what-is-bluetooth-2377412) to swiftly pair with compatible devices and stay connected within a 30-foot range. Compatible devices include[iPhones](https://www.lifewire.com/iphone-and-ios-4781515) , iPads, Android phones, tablets, and Bluetooth-capable desktops. For desktops that don’t already have Bluetooth functionality built-in, it may be worthwhile to pick up a Bluetooth dongle that retails for about $10 online or in stores. Though there’s no reason to use this keyboard in place of a full-size keyboard on a desktop unless you’re having difficulty transitioning between the two.
@@ -105,34 +87,16 @@ thumbnail: https://www.lifewire.com/thmb/ae8RaGxhezzEqpugk1_Oz8ylJxo=/400x300/fi
 
  The MoKo is small—hardly larger than your hand when folded down to its collapsed size.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Battery: Plenty of Juice for Work
 
  The battery life of the MoKo is easy to fall in love with. The MoKo’s charge time is just under two hours and it can support up to 40 hours of uninterrupted work or 30 days of standby time. One added bonus of the keyboard being rechargeable was that we weren’t dependent upon having batteries when the keyboard inevitably ran out of charge. It also has the added benefit of entering a battery-saving mode after sitting idle for 30 minutes, so if you walk away and forget about it, it won’t continue to run out its charge. Reconnecting is easy, too. Simply press any key and, within 30 seconds or less, it’s ready for use.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: Highly Affordable
 
  Travel-size ergonomic keyboards generally retail for anywhere from $20-$50\. The MoKo retails for around $27 on Amazon. With its low price point, compact build, excellent portability, and great battery life, it’s well worth the price for commuters and frequent flyers who have limited space.
 
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/_ZZ5LMz0jlm5vldVU2UTdDoXbeA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_05-fc37bb4154314025a1a1bfae6c6f5e24.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
 ## MoKo Universal Folding Keyboard vs. Jelly Comb B047
@@ -165,14 +129,11 @@ thumbnail: https://www.lifewire.com/thmb/ae8RaGxhezzEqpugk1_Oz8ylJxo=/400x300/fi
 * Charge Time  Less than 2 hours
 * Compatibility  Compatible with iPads, iPhones, Androids devices, tablets, and Windows desktop computers with Bluetooth capabilities. Not compatible with Windows Mobile.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -181,4 +142,19 @@ thumbnail: https://www.lifewire.com/thmb/ae8RaGxhezzEqpugk1_Oz8ylJxo=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-immortal-gameplay-highlights-of-android-samsungs/"><u>[Updated] 2024 Approved Immortal Gameplay Highlights of Android Samsungs</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-copyright-clearance-for-creative-uploads-on-tiktok/"><u>[Updated] Copyright Clearance for Creative Uploads on TikTok</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-your-first-steps-in-online-broadcasting-via-obs/"><u>[Updated] Your First Steps in Online Broadcasting via OBS</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-realme-10t-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Realme 10T 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-most-economical-choice-for-home-security-our-comprehensive-vuebell-doorbell-guide/"><u>Discover the Most Economical Choice for Home Security: Our Comprehensive VueBell Doorbell Guide</u></a></li>
+<li><a href="https://win-premium.techidaily.com/how-does-your-platform-secure-my-crypto-assets-understanding-safety-protocols-at-yl-computing/"><u>How Does Your Platform Secure My Crypto Assets? Understanding Safety Protocols at YL Computing</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ifixit-amazed-by-microsofts-latest-easily-repairable-laptops-a-challenge-to-competitors-like-apple-revealed/"><u>IFixit Amazed by Microsoft's Latest Easily-Repairable Laptops: A Challenge to Competitors Like Apple Revealed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/jabra-evolve2-85-review/"><u>Jabra Evolve2 85 Review</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>New In 2024, Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/seamlessly-move-photos-between-android-and-ipad-top-5-tips-for-no-computer-transfers/"><u>Seamlessly Move Photos Between Android and iPad: Top 5 Tips for No-Computer Transfers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-selecting-the-best-streaming-device-apple-tv-4k-or-roku-ultra/"><u>The Ultimate Guide to Selecting the Best Streaming Device: Apple TV 4K or Roku Ultra?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-seamless-integration-with-freestyle2-blue-software-for-your-mac-device/"><u>Unlocking Seamless Integration with Freestyle2 Blue Software for Your Mac Device</u></a></li>
+</ul></div>
 

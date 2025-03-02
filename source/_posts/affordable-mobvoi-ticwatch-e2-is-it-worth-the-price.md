@@ -1,7 +1,7 @@
 ---
 title: Affordable Mobvoi TicWatch E2 - Is It Worth the Price?
-date: 2024-09-04T18:44:00.917Z
-updated: 2024-09-05T18:44:00.917Z
+date: 2025-02-24T08:44:51.451Z
+updated: 2025-03-02T05:41:28.704Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Mobvoi TicWatch E2 - Is It Worth the Price?
@@ -95,12 +95,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance** :**Great components for gaming and productivity**
 
  The HP OMEN Obelisk that I tested featured a 9th Gen Intel Core i9 9900K, 32GB of RAM, a 1TB SSD, and the Nvidia GTX GeForce 2080 Super graphics card. This is a potent combination of components in a gaming PC, and I was appropriately impressed by the results.
@@ -109,18 +103,6 @@ Lifewire / Jonno Hill
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Gaming** :**Great for the most demanding titles**
 
  Gaming performance is great on the HP OMEN Obelisk thanks to the Nvidia GTX GeForce 2080 Super and Intel i9-9900K combo. I tested a number of games on my 3440x1440 monitor to get a sense of performance. To put this in perspective, this resolution is roughly 60 percent of the pixels of a 4K monitor.
@@ -135,12 +117,6 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
@@ -149,12 +125,6 @@ Lifewire / Jonno Hill
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Just enough options**
 
  The HP OMEN Obelisk comes with the OMEN Command Center, which is used to manage your desktop as well as any other OMEN products such as headsets, keyboards, and mice. From here, you have the option to click on your desktop and start managing your PC or choose from one of the various other options such as rewards, coaching, remote play, and My Games (a game launcher).
@@ -165,12 +135,6 @@ Lifewire / Jonno Hill
 
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Highly competitive**
 
  The HP OMEN Obelisk with the same specs as this one can be found for around $2,000, at least when it’s in stock. Despite a lot of flaws that I can point to a nit-pick about, the price is one of the main reasons I still consider the OMEN to be a solid deal. I went through the trouble of parting out a similar build on PCPartPicker, going as far as to cut corners where I usually wouldn’t, and still arrived at just under $1800 before tax.
@@ -179,12 +143,6 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
@@ -218,14 +176,11 @@ Lifewire / Jonno Hill
 * Network  Wi-Fi 5 (2x2), Gigabit Ethernet, Bluetooth 4.2
 * Warranty  1 year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,4 +189,24 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-from-concept-to-completion-the-artisans-guide-to-gifs/"><u>[New] From Concept to Completion The Artisan's Guide to GIFs</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-step-by-step-guide-to-saving-your-youtube-playlists/"><u>[New] Step-by-Step Guide to Saving Your YouTube Playlists</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-turning-fans-into-followers-friends-and-profits/"><u>[New] Turning Fans Into Followers, Friends, and Profits</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unlocking-the-secrets-of-youtubes-shorts-revenue-sharing/"><u>[New] Unlocking the Secrets of YouTube’s Shorts Revenue Sharing</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-success-the-leading-25-tagging-tactics/"><u>[Updated] 2024 Approved Instagram Success The Leading 25 Tagging Tactics</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-couch-to-camera-earning-through-personal-vlogging-for-2024/"><u>[Updated] From Couch-to-Camera Earning Through Personal Vlogging for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-social-media-shifts-yearly-data-visualization-guide/"><u>[Updated] Social Media Shifts Yearly Data Visualization Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-the-versatile-lenovo-9-inch-digital-notebook/"><u>A Closer Look at the Versatile Lenovo 9-Inch Digital Notebook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-review-of-the-stylish-and-sporty-garmin-vivomove-hr-watch/"><u>A Comprehensive Review of the Stylish and Sporty Garmin Vivomove HR Watch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/adding-extra-games-to-your-nes-classic-console-tips-and-tricks/"><u>Adding Extra Games to Your NES Classic Console - Tips & Tricks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/address-formats/"><u>Address Formats</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/alexa-versus-google-assistant-determining-the-top-tech-sidekick-for-personal-use/"><u>Alexa versus Google Assistant: Determining the Top Tech Sidekick for Personal Use</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/alienware-aurora-r9-powerhouse-in-depth-review-of-dells-cutting-edge-gaming-desktop/"><u>Alienware Aurora R9 Powerhouse - In-Depth Review of Dell's Cutting-Edge Gaming Desktop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ambient-weather-ws-1002-wifi-thermometer-is-top-notch-accuracy-worth-the-price-tag/"><u>Ambient Weather WS-1002 WiFi Thermometer: Is Top-Notch Accuracy Worth the Price Tag?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-motorola-razr-40-ultra-get-deleted-phone-number-back-with-ease-and-safety-by-fonelab-android-recover-contacts/"><u>How to Motorola Razr 40 Ultra Get Deleted Phone Number Back with Ease and Safety</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1715860792074-in-2024-capture-and-share-your-mac-life-free/"><u>In 2024, Capture & Share Your Mac Life, FREE!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722457377307-next-gen-power-in-a-small-package-comprehensive-review-of-xbox-series-s-hardware/"><u>Next-Gen Power in a Small Package: Comprehensive Review of Xbox Series S Hardware</u></a></li>
+</ul></div>
 

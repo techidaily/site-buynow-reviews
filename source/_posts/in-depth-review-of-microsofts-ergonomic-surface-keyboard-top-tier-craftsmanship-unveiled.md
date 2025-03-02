@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review of Microsoft's Ergonomic Surface Keyboard: Top-Tier Craftsmanship Unveiled"
-date: 2025-02-06T21:52:09.572Z
-updated: 2025-02-11T06:09:22.585Z
+date: 2025-02-27T18:15:18.076Z
+updated: 2025-03-01T18:27:54.402Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review of Microsoft's Ergonomic Surface Keyboard: Top-Tier Craftsmanship Unveiled"
@@ -50,10 +50,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
 [View On Walmart $138](https://www.walmart.com/ip/Microsoft-Sculpt-Ergonomic-Desktop-Black-Wireless-USB-Keyboard-Keypad-and-Mouse/31390902?slfpid=3) [View On Best Buy $66](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F1818024.p) [View On Newegg.com $169](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.newegg.com%2Fmicrosoft-sculpt-ergonomic-desktop-l5v-00001-usb-rf-wireless%2Fp%2FN82E16823109349%3Fitem%3D9SIA24G28N0197%26slfpid%3D3)
@@ -80,10 +76,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -102,10 +94,6 @@ Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -120,15 +108,7 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -184,21 +164,18 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-exploring-basic-hdr-a-thorough-review-guide/"><u>[New] 2024 Approved Exploring Basic HDR A Thorough Review Guide</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-mastering-the-deck-to-deck-experience-with-durecorder/"><u>[New] In 2024, Mastering the Deck-to-Deck Experience with DuRecorder</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-master-your-space-essential-bot-selections-for-discord-for-2024/"><u>[New] Master Your Space Essential Bot Selections for Discord for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-mastering-metaverse-advertising-techniques/"><u>[Updated] Mastering Metaverse Advertising Techniques</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-durable-and-highly-effective-uniden-r3-long-range-radar-scanner/"><u>Expert Analysis of the Durable and Highly Effective Uniden R3 Long-Range Radar Scanner</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/find-your-perfect-viewing-companion-with-these-6-leading-e-commerce-retailers-for-tvs/"><u>Find Your Perfect Viewing Companion with These 6 Leading E-Commerce Retailers for TVs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/from-delicious-disarray-to-gaming-feast-the-complete-overcooked-2-evaluation/"><u>From Delicious Disarray to Gaming Feast: The Complete Overcooked! 2 Evaluation</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-samsung-galaxy-f15-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Samsung Galaxy F15 5G Devices</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Honor X50 GT | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-review-the-mavix-m9-for-gamers-ultimate-seating-experience/"><u>In-Depth Analysis & Review: The Mavix M9 for Gamers' Ultimate Seating Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/investigating-the-mixed-feedback-on-boses-qc30-headphones/"><u>Investigating the Mixed Feedback on Bose's QC30 Headphones</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/logitech-c615-camera-assessment-balancing-cost-effectiveness-with-high-functionality/"><u>Logitech C615 Camera Assessment: Balancing Cost-Effectiveness with High Functionality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/luxurious-soundscapes-embrace-you-with-h8i/"><u>Luxurious Soundscapes Embrace You with H8i</u></a></li>
-<li><a href="https://video-capture.techidaily.com/streamlining-sound-recording-a-filmmakers-handbook-on-voice-overs/"><u>Streamlining Sound Recording A Filmmaker's Handbook on Voice-Overs</u></a></li>
-<li><a href="https://techtrends.techidaily.com/understanding-the-basics-what-exactly-is-an-rtx-graphics-card/"><u>Understanding the Basics: What Exactly Is an RTX Graphics Card?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unlocking-the-secrets-to-effective-imagery-discovery-on-facebook-platforms/"><u>Unlocking the Secrets to Effective Imagery Discovery on Facebook Platforms</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-the-complete-guide-for-setting-up-and-managing-regular-meetings-on-google/"><u>[Updated] In 2024, The Complete Guide for Setting Up and Managing Regular Meetings on Google</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-leading-choices-elite-android-call-alerts/"><u>In 2024, Leading Choices Elite Android Call Alerts</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/logic-pros-efficient-approach-to-softening-audio-levels/"><u>Logic Pro's Efficient Approach to Softening Audio Levels</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/social-sites-for-effective-youtube-video-promotion/"><u>Social Sites for Effective YouTube Video Promotion</u></a></li>
+<li><a href="https://win-great.techidaily.com/speeding-up-your-pcs-boot-and-exit-times-expert-tips-from-yl-computing/"><u>Speeding Up Your PC's Boot & Exit Times: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-path-to-proficiency-mastering-gif-sharing-on-snapchat-for-2024/"><u>The Path to Proficiency Mastering Gif Sharing on Snapchat for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-d3dx939dll-absence-on-windows-11/"><u>Troubleshooting D3DX9_39.dll Absence on Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-most-effective-magsafe-energy-devices-for-this-year/"><u>Ultimate Guide to the Most Effective MagSafe Energy Devices for This Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-selecting-the-ideal-portable-gaming-controls-for-a-superior-experience/"><u>Ultimate Guide: Selecting the Ideal Portable Gaming Controls for a Superior Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-the-most-comfortable-and-durable-camera-straps-of-2024/"><u>Ultimate Guide: The Most Comfortable & Durable Camera Straps of 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-ranking-of-premium-projector-displays-s-market/"><u>Ultimate Ranking of Premium Projector Displays 'S Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-elite-samsung-galaxy-s22plus-shells/"><u>Ultimate Selection: Elite Samsung Galaxy S22+ Shells</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-premier-case-options-for-your-samsung-galaxy-z-flip-4/"><u>Ultimate Selection: Premier Case Options for Your Samsung Galaxy Z Flip 4</u></a></li>
 </ul></div>
 

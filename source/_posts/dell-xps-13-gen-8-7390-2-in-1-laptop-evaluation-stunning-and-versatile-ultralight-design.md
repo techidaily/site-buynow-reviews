@@ -1,7 +1,7 @@
 ---
 title: "Dell XPS 13 Gen 8 (7390) 2-in-1 Laptop Evaluation: Stunning & Versatile Ultralight Design"
-date: 2025-02-04T19:46:33.468Z
-updated: 2025-02-11T03:15:45.752Z
+date: 2025-02-26T10:00:14.401Z
+updated: 2025-03-02T05:38:29.439Z
 categories:
   - BestProducts
 description: "This Article Describes Dell XPS 13 Gen 8 (7390) 2-in-1 Laptop Evaluation: Stunning & Versatile Ultralight Design"
@@ -45,17 +45,9 @@ Lifewire / Andrew Hayward
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/R_aYhYLFGT6--hIRDTNUJTlIVn8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -86,15 +78,7 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/radDS_2IRuzjTlZxUS5og2a3PIM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Top_04-b051e3660efc406ab97f92df654d3762.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Amazingly light, but not wholly convincing**
 
@@ -152,10 +136,6 @@ Lifewire / Andrew Hayward
 
  You won't see the speakers when the LG Gram is standing up as normal, but you'll hear them loud and clear. The stereo speakers are tucked underneath the laptop at the left and right edges near where your wrists rest, and thanks to the slight elevation from the rubbery feet on the bottom of the laptop, they're given enough space for the output to shine. Audio playback sounds robust and clear—not quite to the level of Apple's current MacBook Air and MacBook Pro, but very close. We were pleased with it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Network: Connects as expected**
 
  The LG Gram had no problem connecting to a few different networks, including a home Wi-Fi network, the Google Wi-Fi network at Starbucks, and a mobile hotspot. The connection always seemed speedy and downloads ran at a steady clip. Testing it on a home Wi-Fi network during peak evening hours, we saw a download speed of about 30Mbps and an upload speed of 13Mbps. We tested the network on an iPhone XS Max immediately after and saw comparable speeds there, as well. You can connect to both 2.4Ghz and 5Ghz networks with ease.
@@ -165,10 +145,6 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Battery: Seriously amazing**
 
@@ -193,10 +169,6 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
 
@@ -244,22 +216,16 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-explore-advanced-multi-screen-browsing-in-chrome/"><u>[New] In 2024, Explore Advanced Multi-Screen Browsing in Chrome</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-best-screen-record-apps-for-classroom-use/"><u>[New] In 2024, The Best Screen Record Apps for Classroom Use</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-best-nature-friendly-video-capture-tools-explained/"><u>2024 Approved Best Nature-Friendly Video Capture Tools Explained</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/call-of-duty-warzone-and-pc-stability-issues-proven-solutions-for-a-smoother-game-experience/"><u>Call of Duty Warzone and PC Stability Issues: Proven Solutions for a Smoother Game Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/canon-powershot-the-efficient-sx620-hs-explores-photography/"><u>Canon PowerShot: The Efficient SX620 HS Explores Photography</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comfort-assurance-the-ultimate-guide-to-using-ergoheads-mat-on-your-standing-desk/"><u>Comfort Assurance: The Ultimate Guide to Using Ergohead's Mat on Your Standing Desk</u></a></li>
-<li><a href="https://apple-account.techidaily.com/detailed-guide-on-removing-apple-iphone-13-pro-max-activation-lock-without-previous-owner-by-drfone-ios/"><u>Detailed Guide on Removing Apple iPhone 13 Pro Max Activation Lock without Previous Owner?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-advice-on-upgrading-components-for-an-intel-imac-system/"><u>Expert Advice on Upgrading Components for an Intel iMac System</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-verdict-on-microsoft-flight-simulator-x-gold-edition-a-top-choice-for-enthusiasts/"><u>Expert Verdict on Microsoft Flight Simulator X: Gold Edition - A Top Choice for Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/gopro-hero9-black-unveiled-quality-meets-cost/"><u>GoPro HERO9 Black Unveiled - Quality Meets Cost</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/gratuito-convertidor-de-audio-opus-a-formato-m4a-web-service-conversion-con-movavi/"><u>Gratuito Convertidor De Audio Opus a Formato M4A - Web Service Conversion Con Movavi</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-get-ahead-with-these-best-7-android-browsers-without-ads/"><u>In 2024, Get Ahead with These Best 7 Android Browsers Without Ads</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-on-apple-iphone-12-mini-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account On Apple iPhone 12 mini?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/mmfwavmovavi/"><u>MMF到WAV格式自由转换：使用Movavi的简单方法</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/optimizing-performance-with-an-additional-memory-card-in-your-device/"><u>Optimizing Performance with an Additional Memory Card in Your Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-fit2-a-compact-and-convenient-fitness-tracker/"><u>Samsung Galaxy Fit2: A Compact and Convenient Fitness Tracker</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-nulaxy-km18-fm-transmitter-for-cars-vintage-reliability-meets-modern-convenience/"><u>The Ultimate Guide to the Nulaxy KM18 FM Transmitter for Cars: Vintage Reliability Meets Modern Convenience</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-comical-connections-top-websites-for-funny-phone-sounds/"><u>[Updated] Comical Connections Top Websites for Funny Phone Sounds</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-12-innovative-techniques-for-livestreaming-classes-without-spending/"><u>2024 Approved 12 Innovative Techniques for Livestreaming Classes Without Spending</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/charting-a-course-budget-planning-for-youtube-growth/"><u>Charting a Course Budget Planning for YouTube Growth</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-and-accurate-discover-how-sabrents-cable-connected-travel-mouse-revolutionizes-portable-computing/"><u>Compact and Accurate: Discover How Sabrent’s Cable-Connected Travel Mouse Revolutionizes Portable Computing</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/empower-your-viewing-experience-with-funimate-for-2024/"><u>Empower Your Viewing Experience with Funimate for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-hitman-series-finale-game-three-unveiled/"><u>Expert Analysis of Hitman Series Finale, Game Three Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-enhancements-in-canons-t7-dslr/"><u>Exploring the Enhancements in Canon's T7 DSLR</u></a></li>
+<li><a href="https://driver-install.techidaily.com/in-depth-analysis-of-the-chromecast-with-google-tv-is-it-time-to-switch/"><u>In-Depth Analysis of the Chromecast with Google TV - Is It Time to Switch?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-the-uniden-r3s-superior-build-quality-and-wide-radar-frequency-range/"><u>In-Depth Review: The Uniden R3's Superior Build Quality and Wide Radar Frequency Range</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-ai-skills-without-stress-insights-by-zdnet/"><u>Mastering AI Skills Without Stress: Insights by ZDNet</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-the-power-of-gpt-4-a-comprehensive-guide-to-universal-access/"><u>Unlocking the Power of GPT-4: A Comprehensive Guide to Universal Access</u></a></li>
 </ul></div>
 

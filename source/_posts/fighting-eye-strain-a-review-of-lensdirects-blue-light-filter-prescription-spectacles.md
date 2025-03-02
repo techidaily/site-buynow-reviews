@@ -1,7 +1,7 @@
 ---
 title: "Fighting Eye Strain: A Review of LensDirect's Blue Light Filter Prescription Spectacles"
-date: 2024-09-09T07:50:39.217Z
-updated: 2024-09-10T07:50:39.217Z
+date: 2025-02-28T16:39:21.425Z
+updated: 2025-03-02T08:39:05.649Z
 categories:
   - BestProducts
 description: "This Article Describes Fighting Eye Strain: A Review of LensDirect's Blue Light Filter Prescription Spectacles"
@@ -9,32 +9,14 @@ excerpt: "This Article Describes Fighting Eye Strain: A Review of LensDirect's B
 thumbnail: https://thmb.techidaily.com/de2a2439a12942f0b9808810580359ed4223c732cf24aad5cc401c9c124e67ae.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Experience Excellent Connectivity with the Simplistic Design of ClearStream's Eclipse Antenna - A Comprehensive Review
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/C1hoQetKMx7bAHqwsQ9gt0Fz_S0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jonno Hill
 
  What We Like
@@ -58,12 +40,6 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jonno Hill
 
 [View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
@@ -89,12 +65,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
@@ -107,18 +77,6 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
@@ -129,18 +87,6 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
 ## **Price: Not bad for the performance**
@@ -169,14 +115,11 @@ Lifewire / Jonno Hill
 * Range  35 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -185,4 +128,24 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-a-comprehensive-guide-to-understanding-and-using-slug-lines-for-2024/"><u>[New] A Comprehensive Guide to Understanding and Using Slug Lines for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-unlocking-vlcs-full-potential-an-overview/"><u>[New] In 2024, Unlocking VLC's Full Potential An Overview</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-transform-your-streaming-experience-via-youtubes-av1-feature/"><u>2024 Approved Transform Your Streaming Experience via YouTube's AV1 Feature</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/benchmarking-the-netgear-nighthawk-c7000-why-it-stands-out-as-an-elite-modem-choice/"><u>Benchmarking the Netgear Nighthawk C7000: Why It Stands Out as an Elite Modem Choice</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-garmin-vivosmart-4-with-advanced-features-like-body-battery-and-stress-monitor/"><u>Comprehensive Review of the Garmin Vivosmart 4 with Advanced Features Like Body Battery & Stress Monitor</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-the-latest-hp-officejet-4500-printer-software-update/"><u>Download the Latest HP OfficeJet 4500 Printer Software Update</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhancing-your-running-experience-with-the-garmin-forerunner-45-full-review/"><u>Enhancing Your Running Experience with the Garmin Forerunner 45 - Full Review</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/game-on-easy-ways-to-record-your-overwatch-experience/"><u>Game On! Easy Ways to Record Your Overwatch Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-nokia-31-the-ultimate-beginner-phone-a-detailed-review-and-evaluation/"><u>Is Nokia 3.1 the Ultimate Beginner Phone? A Detailed Review and Evaluation</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/leading-usb-wi-fi-converters-for-seamless-internet-connection-in-2n3-best-picks-of-the-year/"><u>Leading USB Wi-Fi Converters for Seamless Internet Connection in 2N3 - Best Picks of the Year</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lg-k92-5g-smartphone-evaluation-is-the-upgrade-really-necessary/"><u>LG K92 5G Smartphone Evaluation - Is the Upgrade Really Necessary?</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-engagement-on-popular-sites-a-guide-to-facebook-twitter-instagram-and-youtube-strategies/"><u>Mastering Engagement on Popular Sites: A Guide to Facebook, Twitter, Instagram & YouTube Strategies</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/seamless-selection-the-finest-10-online-vimeo-file-harvesters/"><u>Seamless Selection The Finest 10 Online Vimeo File Harvesters</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-choices-in-tablet-shopping-prioritizing-size-and-weight-preferences/"><u>Smart Choices in Tablet Shopping: Prioritizing Size and Weight Preferences</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-pulse-3d-wireless-headset-review-an-aural-upgrade/"><u>Sony Pulse 3D Wireless Headset Review: An Aural Upgrade</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-budget-routers-showdown-why-the-tp-link-archer-c9-stands-out/"><u>Top Budget Routers Showdown: Why the TP-Link Archer C9 Stands Out</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/video-editing-for-kids-made-easy-10-best-apps-with-free-and-paid-options/"><u>Video Editing for Kids Made Easy 10 Best Apps with Free and Paid Options</u></a></li>
+</ul></div>
 

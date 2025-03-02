@@ -1,7 +1,7 @@
 ---
 title: "Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
-date: 2025-02-09T23:24:04.080Z
-updated: 2025-02-10T22:23:50.227Z
+date: 2025-02-22T20:03:58.315Z
+updated: 2025-03-02T02:21:40.380Z
 categories:
   - BestProducts
 description: "This Article Describes Syma S111G RC Helicopter Review: Low-Cost Indoor Fun"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/F035WaL3U8Q-n4fK2WBE6844lMo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -53,10 +49,6 @@ Lifewire / Emily Isaacs
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -102,10 +94,6 @@ Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -121,10 +109,6 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
  Lifewire / Emily Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -149,10 +133,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,22 +164,20 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/1722559853852-dying-light-review-join-forces-leap-into-action-and-conquer-survival-challenges-together-a-co-op-first-person-parkour-adventure/"><u>'Dying Light' Review: Join Forces, Leap Into Action, and Conquer Survival Challenges Together – A Co-Op First-Person Parkour Adventure.</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-macos-11-big-sur-compatibility-guide/"><u>[New] 2024 Approved MacOS 11 Big Sur Compatibility Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-symphony-of-screenshots-incorinas-music-into-social-media/"><u>[New] 2024 Approved Symphony of Screenshots Incorinas Music Into Social Media</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-outstanding-non-zoom-video-conferencing-tech/"><u>[Updated] 2024 Approved Outstanding Non-Zoom Video Conferencing Tech</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-step-up-your-gameplay-our-list-of-top-12-pc-clicker-games/"><u>[Updated] In 2024, Step Up Your Gameplay Our List of Top 12 PC Clicker Games</u></a></li>
-<li><a href="https://win11.techidaily.com/efficiently-manage-apps-using-window-11-shortcuts/"><u>Efficiently Manage Apps Using Window 11 Shortcuts</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/expert-tips-for-swift-and-safe-download-of-brother-hl-3170cdw-driver-files/"><u>Expert Tips for Swift & Safe Download of Brother HL-3170cdw Driver Files</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/extrakce-zvuku-effiziente-online-audiorauszugstechnologie-von-extraktor-zvuku/"><u>Extrakce Zvuku - Effiziente Online-Audiorauszugstechnologie Von Extraktor Zvuku</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-quick-access-the-10-windows-restore-paths/"><u>Mastering Quick Access: The 10 Windows Restore Paths</u></a></li>
-<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-honor-100-pro-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Honor 100 Pro Unresponsive Screen | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-asus-chromebook-c202sa-top-pick-for-students-and-kids/"><u>The Ultimate Guide to Asus Chromebook C202SA - Top Pick for Students and Kids</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-unbeatable-champion-an-in-depth-review-of-the-alienware-aurora-r11-a-gamers-dream/"><u>The Unbeatable Champion: An In-Depth Review of the Alienware Aurora R11 - A Gamer's Dream</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/transformative-technology-unpacked-insightful-critique-on-asus-zenbook-flip-ux371e/"><u>Transformative Technology Unpacked: Insightful Critique on ASUS ZenBook Flip UX371E</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-pure-analog-sound-without-connections/"><u>Unleashing Pure Analog Sound without Connections</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-lenovo-thinkpad-x12-detachable-impressive-dual-mode-and-outstanding-keyboard-quality-reviewed/"><u>Unveiling the Lenovo ThinkPad X1^2 Detachable: Impressive Dual-Mode and Outstanding Keyboard Quality Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-most-expensive-iphone-an-elite-review-of-apples-iphone-xs-max/"><u>Unveiling the Most Expensive iPhone: An Elite Review of Apple's iPhone XS Max</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-pros-and-cons-of-communication-with-pidgin-instant-messaging/"><u>Unveiling the Pros and Cons of Communication with Pidgin Instant Messaging</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-leading-edge-apps-the-ultimate-10-for-real-time-gymnastics-and-hockey-games/"><u>[New] In 2024, Leading Edge Apps The Ultimate 10 for Real-Time Gymnastics and Hockey Games</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-dynamic-duo-enhancing-fb-live-with-monitor-sharing-capabilities/"><u>[Updated] Dynamic Duo Enhancing Fb Live with Monitor Sharing Capabilities</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-valuation-of-a-million-viewing-on-youtube/"><u>[Updated] Valuation of a Million-Viewing on YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/breaking-down-the-behemoth-an-in-depth-analysis-of-apples-dominant-arm-based-mac-mini-m1-2020/"><u>Breaking Down the Behemoth: An In-Depth Analysis of Apple's Dominant ARM-Based Mac Mini (M1, 2020)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/effortless-avi-file-viewing-on-your-xbox-one-a-simple-guide-using-an-avi-to-xbox-converter/"><u>Effortless AVI File Viewing on Your Xbox One: A Simple Guide Using an AVI-to-Xbox Converter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-entertainment-with-antops-at-127-the-sleek-solution-for-unlimited-tv-access-reviewed/"><u>Elevate Your Entertainment with Antop's AT-127 - The Sleek Solution for Unlimited TV Access Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ss-yourself-incorporating-emojis-into-yt-feedback/"><u>Express Yourself Incorporating Emojis Into YT Feedback</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/getting-up-close-with-the-apple-iphone-15-pro-performance-and-design-evaluation/"><u>Getting Up Close with the Apple iPhone 15 Pro: Performance and Design Evaluation</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/identifying-key-hardware-issues-behind-blue-screen-errors-insights-from-yl-computing/"><u>Identifying Key Hardware Issues Behind Blue Screen Errors - Insights From YL Computing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-of-the-lenovo-thinkpad-x12-detachable-a-highly-effective-hybrid-and-exceptional-keyboard/"><u>In-Depth Evaluation of the Lenovo ThinkPad X12 Detachable: A Highly Effective Hybrid and Exceptional Keyboard</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/mastering-iphone-hdr-imaging-techniques/"><u>Mastering iPhone HDR Imaging Techniques</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-limitations-of-artificial-intelligence-in-copy-detection/"><u>The Limitations of Artificial Intelligence in Copy Detection</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-unrivaled-power-of-xbox-one-x-a-comprehensive-gaming-console-assessment/"><u>The Unrivaled Power of Xbox One X: A Comprehensive Gaming Console Assessment</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-pros-and-cons-of-thermaltakes-elite-laptop-cooling-pad-is-it-worth-the-investment/"><u>Unpacking the Pros and Cons of Thermaltake's Elite Laptop Cooling Pad: Is It Worth the Investment?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-benefits-of-hp-chromebook-11-a-versatile-companion-for-education-work-life-and-playtime-fun/"><u>Unveiling the Benefits of HP Chromebook 11: A Versatile Companion for Education, Work Life and Playtime Fun</u></a></li>
 </ul></div>
 

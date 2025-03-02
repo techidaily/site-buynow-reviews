@@ -1,7 +1,7 @@
 ---
 title: Elevate Your Workspace with the Chic and Contemporary Theodore Desk by Flexispot
-date: 2024-09-04T18:43:24.059Z
-updated: 2024-09-05T18:43:24.059Z
+date: 2025-02-24T03:03:25.324Z
+updated: 2025-03-01T19:38:47.735Z
 categories:
   - BestProducts
 description: This Article Describes Elevate Your Workspace with the Chic and Contemporary Theodore Desk by Flexispot
@@ -62,18 +62,6 @@ Lifewire / Todd Braylor
 
  The Escort Max360 is a top of the line radar detector with a wide range of advanced features, including GPS capabilities, 360-degree protection, and IVT filter capabilities. Let’s take a closer look at the true performance of this premiere radar detector.
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Big and heavy**
 
  The Escort Max360 is the biggest and heaviest radar detector I've tested. This is probably the first thing you'll notice right out of the box. The model comes with a single suction cup windshield mount that felt secure despite the unit's weight. A magnet secures the mounting arm bracket when latched in place on the radar detector, preventing any tumbles from bumps in the road.
@@ -96,18 +84,6 @@ The biggest and heaviest radar detector I've tested.
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: Mediocre Ka-band**
 
  The Max360 has a lot of advanced features but some work better than others. Escort’s Autolearn technology features 360 degrees of protection and can detect threats from any angle. The Max360’s display will then show you the signal’s location with directional arrows, which is a great feature and helps with quick identification.
@@ -118,18 +94,6 @@ The biggest and heaviest radar detector I've tested.
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Advanced multi-features**
 
  The Max360 has a solid range of advanced features to help you get the most out of this product, starting with its color OLED display. The screen is easy to see in all conditions and shows you helpful information like detection signal strength, current speed and posted speed limit (via GPS data).
@@ -140,30 +104,12 @@ The biggest and heaviest radar detector I've tested.
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Too expensive**
 
  The Escort Max 360 is quite pricey at $550 MSRP. This is a quality radar detector in terms of user experience, but the overall value is subpar. I appreciate Escort's inclusion of advanced filtering capabilities but the Max360's relatively short range Ka-band detection falls short of expectations for a $500+ product.
 
  This is a quality radar detector in terms of user experience, but the overall value is subpar.
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Escort Max 360 Radar Detector vs. Radenso Pro M Radar Detector**
 
  Let's compare the Max 360 to a popular competitor model that's about a hundred bucks cheaper. The Radenso Pro M Radar Detector is a high-end model with an MSRP of $450\. The Pro M is designed with an equivalent level of advanced technology; it features GPS capabilities, IVT filtering, long-range detection, and red light and speed camera alerts. The major difference between these models is user experience. The Radenso Pro M has a stripped-down design with a much cheaper (albeit high-intensity) single color LED display and no mute button on its DC power adapter. If these are the features you think you can live without, this model can save you some cash.
@@ -174,12 +120,6 @@ The biggest and heaviest radar detector I've tested.
 
  I really wanted the advanced features of the Escort Max360 to add up to an overall superior product but this model isn't the best value for your money. The ability to reliably filter out divergent false alerts coupled with great range is what differentiates high-end radar detectors. The Max360 only delivered top-end performance in the former category.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Max360 Laser Radar Detector with GPS
@@ -200,8 +140,6 @@ The biggest and heaviest radar detector I've tested.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -209,4 +147,22 @@ The biggest and heaviest radar detector I've tested.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/he-essential-yoda-of-youtube-analytics-deciphering-earnings-and-viewer-counts-for-2024/"><u>[New] The Essential Yoda of YouTube Analytics Deciphering Earnings & Viewer Counts for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-constructing-attention-grabbing-trailers-for-youtube/"><u>[Updated] Constructing Attention-Grabbing Trailers for YouTube</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/5-star-selection-of-domestic-atmospheric-sensors-in-2amoyu/"><u>5-Star Selection of Domestic Atmospheric Sensors in 2Amoyu</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-compreayers-guide-to-sony-w800-quality-and-affordability-examined/"><u>A Compreayer's Guide to Sony W800: Quality and Affordability Examined</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-comprehensive-assessment-of-assassins-creed-valhalla-a-grand-norse-saga-in-a-historical-setting/"><u>A Comprehensive Assessment of Assassin's Creed: Valhalla - A Grand Norse Saga in a Historical Setting</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-syma-s111g-rc-helicopter-ultimate-guide-and-user-experience/"><u>Affordable Syma S111G RC Helicopter: Ultimate Guide and User Experience</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/easy-update-process-boost-your-computers-performance-with-windows-11-installation/"><u>Easy Update Process: Boost Your Computer's Performance with Windows 11 Installation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-crafting-viral-videos-on-youtube-a-strategic-plan/"><u>In 2024, Crafting Viral Videos on YouTube A Strategic Plan</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-unlock-your-potential-with-expert-picked-video-stabilization-tools/"><u>In 2024, Unlock Your Potential with Expert-Picked Video Stabilization Tools</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolve-your-kernelbasedll-file-crash-problems-instantly-and-simplified/"><u>Resolve Your KernelBase.dll File Crash Problems Instantly and Simplified</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722588352134-the-ultimate-guide-to-the-lg-oled-c9-unleashing-the-power-of-a-superior-4k-65-tv-in-our-in-depth-review/"><u>The Ultimate Guide to the LG OLED C9: Unleashing the Power of a Superior 4K, 65 TV in Our In-Depth Review</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/the-ultimate-list-of-free-video-meeting-tools-for-professionals-and-educators/"><u>The Ultimate List of Free Video Meeting Tools for Professionals & Educators</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722789105093-thrilling-gameplay-on-a-budget-discover-how-the-ibuypower-custom-gaming-rig-delivers/"><u>Thrilling Gameplay on a Budget? Discover How the IbuyPower Custom Gaming Rig Delivers!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-nokia-c32-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Nokia C32 Android SIM Unlock APK</u></a></li>
+</ul></div>
 

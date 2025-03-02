@@ -1,7 +1,7 @@
 ---
 title: "Unleash Creativity: An In-Depth Look at the Makeblock mBot Engineering Toy for Kids"
-date: 2025-02-07T23:36:09.234Z
-updated: 2025-02-10T21:56:33.187Z
+date: 2025-02-23T11:55:47.364Z
+updated: 2025-03-02T12:24:21.362Z
 categories:
   - BestProducts
 description: "This Article Describes Unleash Creativity: An In-Depth Look at the Makeblock mBot Engineering Toy for Kids"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/2077f1c448ea137a042adda99cddc314210e83104
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Amazfit GTS Smartwatch
 
@@ -45,10 +41,6 @@ Lifewire / Yoona Wagener
 [View On Amazon $129](https://www.amazon.com/dp/B07W6V2RNK/?tag=lifewire-onsite-prod-20&ascsubtag=5120854%7Cn90dfc71ee24a4976b5267b7ff579808b08%7CB07W6V2RNK) [View On Walmart $134](https://www.walmart.com/ip/287424959) [View On Best Buy $61](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6397098.p)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Amazfit GTS Smartwatch
 
@@ -112,10 +104,6 @@ Lifewire / Yoona Wagener
 
  While the display looks great and is responsive, the lack of clarity about certain menu options, both the meaning and how to activate them, and the lack of control over data widget order, takes a few points away from the overall stylish look.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Performance: Solid GPS and decent activity tracking
 
  The Amazfit GTS supports 12 common workout profiles, including running and walking, which I used the most. While it wasn’t spot-on compared with my usual tracking device, the[Garmin Venu](https://www.lifewire.com/garmin-venu-review-4843916) , it wasn’t way off the mark. On one 3-mile run, the Amazfit GTS was less than 1 minute behind and the pace also followed suit at 9 seconds slower and 275 steps shorter, while heart rate was less accurate at about 15 beats faster than the Venu. Another pleasant consistency was the reliable onboard GPS and automatic stop/start feature that worked fairly well, though with some delay.
@@ -127,10 +115,6 @@ Lifewire / Yoona Wagener
  This device is also capable of tracking sleep data in a relatively extensive way, complete with sleep phases, times awake when you fell asleep and woke up. The watch never failed to track data and as far as I could tell, sleep and wake times were accurate, but reading the data was a little less straightforward.
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/lrymbZEsmkXZy1YnjpGE5QutCbA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_04-109baf1e43444eff9789d9c02e2b2e77.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -151,10 +135,6 @@ Lifewire / Yoona Wagener
  Also, the arrangement of data and explanations about how this data is sourced can feel like a bit of a maze to maneuver. There’s an icon in the upper-right corner of the app home screen that leads to all data, which is broken down into categories that aren’t wildly intuitive, such as Status data and Health sign.
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hqD81eq-Q8n6BPE_n48M4SpkIRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_03-97749edaabac498bb95b0f8a9f569f0a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -192,10 +172,6 @@ Lifewire / Yoona Wagener
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  GTS Smartwatch
@@ -227,14 +203,17 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unlocking-the-power-of-videos-to-drive-fb-traffic/"><u>[Updated] In 2024, Unlocking the Power of Videos to Drive FB Traffic</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-iphone-xs-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your iPhone XS Apple ID and Apple Pay</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-v13-document-with-electronic-signature-software-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to sign a PDF v1.3 document with electronic signature software</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-x8b-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Honor X8b to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-straightforward-route-scrolling-through-popular-youtube-feedbacks/"><u>In 2024, The Straightforward Route Scrolling Through Popular YouTube Feedbacks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/razer-blade-stealth-13-review/"><u>Razer Blade Stealth 13 Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-uncovering-knacks-freshness-in-an-often-recycled-video-game-world/"><u>Review: Uncovering Knack's Freshness in an Often-Recycled Video Game World</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/smart-networking-on-a-budget-the-ultimate-tp-link-archer-a6-ac1200-router-review-with-performance-breakdown/"><u>Smart Networking on a Budget: The Ultimate TP-Link Archer A6 AC1200 Router Review with Performance Breakdown</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/smartpacking-for-the-modern-wanderer/"><u>Smartpacking for the Modern Wanderer</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-easily-download-specific-youtube-sections/"><u>[Updated] In 2024, Easily Download Specific YouTube Sections</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-step-by-step-tutorial-download-save-and-share-gifs-from-social-networks-like-fb/"><u>[Updated] In 2024, Step-by-Step Tutorial Download, Save, and Share GIFs From Social Networks Like FB</u></a></li>
+<li><a href="https://article-helps.techidaily.com/advanced-techniques-for-efficient-media-navigation/"><u>Advanced Techniques for Efficient Media Navigation</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-gaming-experience-an-in-depth-review-of-the-havit-five-fan-laptop-cooling-pad/"><u>Elevate Your Gaming Experience: An In-Depth Review of the HAVIT Five-Fan Laptop Cooling Pad</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Vivo V30? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-the-high-end-fast-paced-glion-dolly-electric-scooter-and-its-premium-pricing-structure/"><u>In-Depth Evaluation: The High-End, Fast-Paced Glion Dolly Electric Scooter and Its Premium Pricing Structure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-raspberry-pi-400-portable-mini-pc-reviewed/"><u>The Ultimate Guide to the Raspberry Pi 400: Portable Mini PC Reviewed</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-ultimate-list-of-easy-filming-cameras-for-starters/"><u>The Ultimate List of Easy Filming Cameras for Starters</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/top-5-premier-ntfs-data-recovery-applications-a-comprehensive-guide/"><u>Top 5 Premier NTFS Data Recovery Applications: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-future-a-detailed-look-at-the-groundbreaking-iphone-12/"><u>Unboxing the Future: A Detailed Look at the Groundbreaking iPhone 12</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-chatgpt-shared-links-mechanism-and-functionality/"><u>Understanding ChatGPT Shared Links: Mechanism & Functionality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-lenovo-ideapad-130s-balancing-portable-strength-and-user-experience/"><u>Unveiling the Lenovo IdeaPad 130S: Balancing Portable Strength and User Experience</u></a></li>
 </ul></div>
 

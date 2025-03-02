@@ -1,7 +1,7 @@
 ---
 title: Top 5 Essentials for Prospective Buyers of Pre-Owned iPads
-date: 2025-02-04T19:37:00.274Z
-updated: 2025-02-10T22:48:36.220Z
+date: 2025-02-28T03:51:41.093Z
+updated: 2025-03-02T00:56:08.043Z
 categories:
   - BestProducts
 description: This Article Describes Top 5 Essentials for Prospective Buyers of Pre-Owned iPads
@@ -50,10 +50,6 @@ Lifewire / Emily Isaacs
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/R-TJH8gjH_22LNpYu9lLA2lDwyg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
 [View On Amazon $78](https://www.amazon.com/Fellowes-Microban-Split-Design-Keyboard/dp/B0002CE0XO?tag=lifewire-onsite-prod-20&ascsubtag=4780294%7Cn668ce44e90054ecb91b1dbd3aca2275805%7CB0002CE0XO) [View On Walmart $78](https://www.walmart.com/ip/Fellowes-FEL98915-Split-Design-Ergonomic-Keyboard-with-Microban-1-Black/10363789) [View On Staples](https://www.staples.com/Fellowes-98915-Microban-Split-Design-Corded-Keyboard/product%5F806284)
@@ -91,10 +87,6 @@ Lifewire / Emily Isaacs
 
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Plug and play**
 
  The keyboard doesn’t arrive with much. It comes in a mid-size box with the keyboard itself and an accessory pamphlet that addresses some frequently asked questions regarding Microban technology. Setting up is quite easy. It’s a plug and play device, which means that when the keyboard is connected to the computer, the computer will recognize the device is there and you can begin using it immediately.
@@ -117,10 +109,6 @@ Lifewire / Emily Isaacs
 
  Ergonomic keyboards tend to retail anywhere from $50-$200\. The Fellowes Microban Split Wired Keyboard tends to retail for around $50, which puts this well at the budget end. Its low price point makes it a great introductory ergonomic keyboard, particularly if you’re unsure of what you want and are experimenting with different design choices.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Fellowes Microban Split Design Wired Keyboard vs. Microsoft Sculpt Ergonomic Keyboard**
 
  The Fellowes keyboard faces stiff competition from other companies, notably Microsoft, which has been in the computer game for decades. Here, the Microsoft Sculpt Ergonomic Keyboard is the main competition. Generally retailing for around $80, nearly double the price of the Fellowes, the Sculpt follows a unique design akin to that of a manta ray. The two halves of the keyboard swoop upward, rising toward the middle, but not quite meeting thanks to an unfilled space between them. It looks strange, but it’s quite comfortable, especially thanks to its fabric wrist pad for extra comfort.
@@ -128,10 +116,6 @@ Lifewire / Emily Isaacs
 [Microsoft Sculpt Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-sculpt-ergonomic-keyboard-review-4780274)
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/9Ei30bgFst4sw8SynCxgEI_b-9I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_04-eff22d3b32274568890dd291e56daab5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -148,10 +132,6 @@ Lifewire / Emily Isaacs
  **A great keyboard with microbial protection for office workers.**
 
  The Fellowes Microban Split Design Wired Keyboard is a good, albeit bulky, ergonomic keyboard designed to last. Its antimicrobial protection not only keeps germs, fungi, and bacteria at bay, but ensures the keyboard won’t deteriorate over time. While it may not be our first pick for home use, it’s a great choice if you’re on a budget or are an office working facing down cold and flu season.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,24 +160,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-balancing-act-weaving-b-roll-into-main-scenes/"><u>[New] In 2024, Balancing Act Weaving B Roll Into Main Scenes</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-online-accessory-fb-stories-capture-app/"><u>[Updated] 2024 Approved Online Accessory Fb Stories Capture App</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-hide-and-stream-avoiding-the-spotlight-on-instagram/"><u>[Updated] In 2024, Hide and Stream Avoiding the Spotlight on Instagram</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-financial-free-editing-the-ultimate-guide-to-fcp/"><u>2024 Approved Financial-Free Editing The Ultimate Guide to FCP</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-oneplus-12-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/epson-xp-400-printer-drivers-comprehensive-guide-and-download-steps/"><u>Epson XP-400 Printer Drivers: Comprehensive Guide and Download Steps</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-realme-12plus-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Realme 12+ 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-perfect-post-editing-eliminating-unwanted-picture-borders/"><u>In 2024, Perfect Post-Editing Eliminating Unwanted Picture Borders</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-ultimate-collection-of-youtube-beauty-icons-to-admire/"><u>In 2024, The Ultimate Collection of YouTube Beauty Icons to Admire</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721456103684-problem-no-iphone-alerts-appearing-correct-with-these-7-tips/"><u>Problem: No iPhone Alerts Appearing? Correct with These 7 Tips</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-art-of-worldbuilding-in-gaming-a-detailed-review-of-the-sci-fi-rpg-torment-tides-of-numenera/"><u>The Art of Worldbuilding in Gaming: A Detailed Review of the Sci-Fi RPG 'Torment: Tides of Numenera'</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-compact-guide-to-amazon-echo-dot-3rd-generation-all-alexa-features-in-one-small-speaker/"><u>The Ultimate Compact Guide to Amazon Echo Dot (3Rd Generation): All Alexa Features in One Small Speaker</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-10-must-play-titles-on-your-steam-deck/"><u>Top 10 Must-Play Titles on Your Steam Deck</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-performing-alienware-aurora-r11-gaming-desktop-expert-review/"><u>Top-Performing Alienware Aurora R11 Gaming Desktop - Expert Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/torment-navigating-the-tides-of-numenera-a-deep-dive-into-its-rich-worldbuilding-and-rpg-mechanics/"><u>Torment: Navigating the Tides of Numenera - A Deep Dive Into Its Rich Worldbuilding and RPG Mechanics</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tp67-thermometer-by-thermopro-a-budget-friendly-choice-with-durability-concerns/"><u>TP67 Thermometer by ThermoPro - A Budget-Friendly Choice with Durability Concerns</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-collection-leading-usb-thumb-drives-2024-edition/"><u>Ultimate Collection: Leading USB Thumb Drives 2024 Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-list-of-places-to-find-movie-teasers-online/"><u>Ultimate List of Places to Find Movie Teasers Online</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-potential-comprehensive-review-of-playstation-er-4-pros-4k-visual-fidelity/"><u>Unlocking the Potential: Comprehensive Review of PlayStation Er 4 Pro's 4K Visual Fidelity</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unlocking-the-hidden-power-of-instagrams-ask-emoji/"><u>[New] 2024 Approved Unlocking the Hidden Power of Instagram’s Ask Emoji</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/complete-guide-and-review-why-the-linksys-max-stream-ac1900-is-ideal-for-any-household/"><u>Complete Guide and Review: Why the Linksys Max-Stream AC1900 Is Ideal for Any Household</u></a></li>
+<li><a href="https://fox-info.techidaily.com/discover-the-leading-free-passport-photo-services-for-2024/"><u>Discover the Leading Free Passport Photo Services for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expertly-curated-selection-of-top-8-cost-free-musical-gems-for-iphones/"><u>Expertly Curated Selection of Top 8 Cost-Free Musical Gems for iPhones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-best-features-of-nokia-71-crystal-clear-display-and-topnotch-cameras-at-a-sensible-price-point/"><u>Exploring the Best Features of Nokia 7.1: Crystal Clear Display & Topnotch Cameras at a Sensible Price Point</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-value-of-logitechs-c615-webcam-a-comprehensive-guide/"><u>Exploring the Value of Logitech's C615 Webcam: A Comprehensive Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-zte-nubia-flip-5g-drfone-by-drfone-android/"><u>How to Screen Mirroring ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-poco-x5-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Poco X5 Device SIM</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insightful-cities-skylines-game-analysis-the-irresistible-urban-design-experience/"><u>Insightful Cities: Skylines Game Analysis – The Irresistible Urban Design Experience</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-the-art-of-securing-cost-free-vlc-player-download-on-mac/"><u>Mastering the Art of Securing, Cost-Free VLC Player Download on Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portable-powerhouse-or-overpriced-gadget-meet-the-steam-deck/"><u>Portable Powerhouse or Overpriced Gadget? Meet the Steam Deck</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/reactivate-your-teams-webcam-fixing-camera-problems-with-windows-and-microsoft-teams/"><u>Reactivate Your Team's Webcam: Fixing Camera Problems with Windows and Microsoft Teams</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-active-with-ease-using-the-samsung-galaxy-fit2-the-ultimate-portable-fitness-tracker/"><u>Stay Active with Ease Using the Samsung Galaxy Fit2: The Ultimate Portable Fitness Tracker</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/strategic-considerations-before-acquiring-a-new-print-machine/"><u>Strategic Considerations Before Acquiring a New Print Machine</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/streamline-your-digital-life-with-the-compact-ourlink-u631-wireless-network-adapter-delivering-solid-connectivity-at-a-convenient-size/"><u>Streamline Your Digital Life with the Compact Ourlink U631 Wireless Network Adapter - Delivering Solid Connectivity at a Convenient Size</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-future-is-now-leading-photo-print-websites-24-edition/"><u>The Future Is Now: Leading Photo Print Websites, '24 Edition</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-to-selecting-an-optimal-mobile-case-that-suits-your-style-and-needs/"><u>The Ultimate Guide to Selecting an Optimal Mobile Case that Suits Your Style and Needs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-features-of-samsung-galaxy-s2e-fe-5g-a-hit-with-5g-lovers/"><u>Unveiling the Best Features of Samsung Galaxy S2e FE 5G - A Hit with 5G Lovers</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/vllo-for-macos-download-now-and-consider-these-alternatives-for-2024/"><u>VLLO for macOS Download Now and Consider These Alternatives for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Second Generation Google Nest Hub: Does Lack of Camera Impact Usability?"
-date: 2025-02-05T22:27:42.521Z
-updated: 2025-02-11T04:53:41.187Z
+date: 2025-02-28T11:35:51.053Z
+updated: 2025-03-02T03:45:50.067Z
 categories:
   - BestProducts
 description: "This Article Describes Second Generation Google Nest Hub: Does Lack of Camera Impact Usability?"
@@ -78,10 +78,6 @@ Lifewire / Matthew S. Smith
 
  Acer’s Predator Triton 300 SE is, in many respects, a mid-range gaming laptop, but it succeeds at one very important task: it delivers Nvidia RTX 3060 Max-Q at a reasonable price, and it’s actually in stock not just at, but sometimes below, MSRP. Its value pricing helps the Triton 300 SE stand out against attractive competitors like the Asus ROG Zephyrus G14.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design: Small but sturdy
 
  I’m surprised Acer didn’t slap a “Pro” label on the Predator Triton 300 SE. The spec sheet might scream gaming, but the laptop’s look and feel has more in common with[business laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) . The aluminum exterior and simple silver interior keep this laptop subtle. It’s a bit dull, actually, compared to the sleek elegance of[Razer’s Book 13](https://www.lifewire.com/razer-book-13-review-5176895) or the brash look of[Asus’ ROG Zephyrus G14](https://www.lifewire.com/asus-zephyrus-g14-review-a-no-compromises-gaming-laptop-5084841) .
@@ -93,10 +89,6 @@ Lifewire / Matthew S. Smith
  Physical connectivity is a mix of new and old. There are two USB-A 3.2 ports paired with a USB-C 3.2 Gen 2 port that supports DisplayPort Mode and[Thunderbolt 4](https://www.lifewire.com/what-is-thunderbolt-832713) . There’s also an HDMI output and a 3.5mm audio jack that handles audio-in and out.
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RkOepytb4JglYF6g8lqap4lR4Uk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-5-b8c978f2d42a4865be1ea11a4785c104.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -121,10 +113,6 @@ Lifewire / Matthew S. Smith
 Lifewire / Matthew S. Smith
 
  There’s one downside: poor viewing angles. This is unusual in a modern laptop, though I’ve noticed this trait in many high-refresh laptop displays. I can’t give the Triton 300 SE too much flak for this given its otherwise excellent performance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Great for games, ok for everything else
 
@@ -154,10 +142,6 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/IiMzYmVU-_I6PnObn0bkjyCzqUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-3-7cae0e5d13154048bbc93c40976706ca.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
  The touchpad is about four inches wide and two and a half inches deep. That’s not bad for a gaming laptop, but average for a productivity machine, and it can feel cramped. It’s responsive and rejects any quick, unintended brush by a palm or thumb. It’s smooth when using multi-touch gestures like two-finger scroll or pinch-to-zoom.
@@ -178,17 +162,9 @@ Lifewire / Matthew S. Smith
 
  This translated to excellent real-world results. I created a real-world stress test by downloading Cyberpunk 2077 on Steam while simultaneously downloading Metro Exodus on Epic. Surprisingly, both downloads averaged in excess of 25Mbps. I’m used to seeing numbers in the teens.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Camera: BYOW (Bring Your Own Webcam)
 
  Acer’s Predator Triton 300 SE straddles the line between entertainment and productivity in its design, but the camera falls short of its professional aspirations. It’s a tiny 720p pinhole camera that squeezes between the display and the top bezel. Video quality is grainy in all but the brightest rooms and uneven lighting can easily confuse it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Battery: Ouch
 
@@ -218,10 +194,6 @@ Lifewire / Matthew S. Smith
 
  Acer sells the Predator Triton 300 SE for $1,400, and it sometimes sells for $1,350 at Best Buy. This is an outstanding price for a laptop packing Nvidia’s RTX 3060\. There’s only a few competitors with the RTX 3060, such as MSI’s GF65 Thin, that can be purchased for less right now. The MSI GF65 manages to undercut the Triton 300 SE by using an older Intel chip and just 8GB of RAM.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Acer Predator Triton 300 SE vs. Asus ROG Zephyrus G14
 
  Acer’s Predator Triton 300 SE and Asus’ ROG Zephyrus G14 seem to target the same users. They’re both compact, light 14-inch laptops that pack impressive CPU and GPU horsepower. Although great for gamers, they also appeal to content creators seeking an affordable, portable laptop.
@@ -239,10 +211,6 @@ Lifewire / Matthew S. Smith
 **Excellent value for an RTX-powered gaming laptop.**
 
  Acer’s Predator Triton 300 SE is an excellent value that has what gamers want: a great gaming experience and a quality display. Its short battery life and mediocre multi-core processor hold it back in everyday use, but the laptop’s competitive price makes these flaws easy to forgive.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -284,14 +252,15 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-uncovering-average-earnings-podcaster-edition/"><u>[New] Uncovering Average Earnings Podcaster Edition</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-visual-strategy-for-podcast-branding-for-2024/"><u>[Updated] The Ultimate Visual Strategy for Podcast Branding for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/pcitunessdusbx-app/"><u>新しいPC・iTunes・SDメモリカード・USBへのX-Appデータ転送手順集</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-on-samsung-galaxy-fit-perfect-gadget-for-the-health-conscious/"><u>Comprehensive Guide on Samsung Galaxy Fit - Perfect Gadget for the Health-Conscious</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-motorola-edgepluss-struggle-for-elite-status/"><u>Comprehensive Review: Motorola Edge+'s Struggle for Elite Status</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-best-outdoor-viewing-a-comprehensive-review-of-the-55-inch-silver-sealoc-waterproof-4k-television-set/"><u>Discover the Best Outdoor Viewing: A Comprehensive Review of the 55-Inch Silver Sealoc Waterproof 4K Television Set</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-photoscape-software-potential-an-expert-evaluation-of-free-visual-creativity-tools/"><u>Discovering PhotoScape Software Potential: An Expert Evaluation of Free Visual Creativity Tools</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/navigating-the-2024-cloud-cost-landscape/"><u>Navigating the 2024 Cloud Cost Landscape</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722971434474-upgrade-your-system-easily-with-no-charge-free-download-of-qualcomm-atheros-ar9-8x-driver/"><u>Upgrade Your System Easily with [No Charge] Free Download of Qualcomm Atheros AR9 8X Driver!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-high-quality-fb-vids-on-demand/"><u>[New] 2024 Approved High-Quality FB Vids on Demand</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-fostering-fast-visual-storytelling-with-google-imagery-for-2024/"><u>[New] Fostering Fast Visual Storytelling with Google Imagery for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-affordable-fitbit-versa-lite-excellent-health-tracking-on-budget/"><u>Comprehensive Review of the Affordable Fitbit Versa Lite - Excellent Health Tracking on Budget</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/download-friends-share-and-connect-effortlessly-online-for-2024/"><u>Download Friends, Share & Connect Effortlessly Online for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/intels-resilient-duo-core-310-cpu-scoring-high-in-geekbench-reveals-market-potential/"><u>Intel's Resilient Duo-Core 310 CPU Scoring High in Geekbench Reveals Market Potential</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-art-of-self-care-with-garmin-vivosmart-4-a-thorough-review-on-body-battery-levels-and-innovative-stress-detection-capabilities/"><u>Mastering the Art of Self-Care with Garmin Vivosmart #4 - A Thorough Review on Body Battery Levels and Innovative Stress Detection Capabilities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/samsung-galaxy-s10e-mastering-miniaturization-without-compromising-on-performance/"><u>Samsung Galaxy S10e: Mastering Miniaturization Without Compromising on Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-amazonbasics-flat-antenna-review-for-economical-free-to-air-tv-enthusiasts/"><u>The Ultimate AmazonBasics Flat Antenna Review for Economical Free-to-Air TV Enthusiasts</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/troubleshooting-guide-resolving-stop-error-code-0x0000001a/"><u>Troubleshooting Guide - Resolving Stop Error Code 0X0000001A</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-the-battlefield-5-not-starting-easy-fixes-inside/"><u>Troubleshooting the Battlefield 5 Not Starting - Easy Fixes Inside</u></a></li>
 </ul></div>
 

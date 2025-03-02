@@ -1,7 +1,7 @@
 ---
 title: Explore the World with Canon's Retro-Chic G9X Mark II
-date: 2025-02-09T07:30:10.507Z
-updated: 2025-02-11T06:15:24.235Z
+date: 2025-02-26T09:01:02.321Z
+updated: 2025-03-02T12:46:07.018Z
 categories:
   - BestProducts
 description: This Article Describes Explore the World with Canon's Retro-Chic G9X Mark II
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/DvYNnDCYMwyc7l_zhwtQrC02LcM=/400x300/fi
 ## Lenovo Tab M10 HD (2nd Gen)
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/06yy-B-ZCvWfOzJ-tXX1fyPjkUE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_HeroSquare-00489478f3e74cb9b38444e2d94ab257.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -84,10 +80,6 @@ Lifewire / Jeremy Laukkonen
 
  I recently unpacked a second-gen Tab M10 HD and used it for about a week for everything from email and web browsing to video conferencing and streaming movies from[apps like Netflix](https://www.lifewire.com/overview-of-the-netflix-streaming-service-1847831) and[HBO Max](https://www.lifewire.com/what-is-hbo-max-how-to-watch-it-4782926) . During my time with the tablet, I tested overall performance, video and audio quality, wireless speeds, and a variety of other factors to see if this budget friendly Android tablet is worth the asking price.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What’s New: Better price, better specs, lower resolution
 
  The first-generation Lenovo Tab M10 hit shelves back in 2019\. It shipped with Android 8.1 and an MSRP just shy of $200\. Right off the top you can see that Lenovo decided to chase a more budget-friendly market segment with the second generation of the hardware.
@@ -104,10 +96,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/pPNbzMq7aB9LY-_koMR-oHoTUHA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_02-1cb2ef47999844eaacd3c03a777faea8-f2d25c46eb184b4c8b7a8667735f2ea9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
  On the left side, you’ll find Lenovo’s docking port connector. Unfortunately, there’s no way to make use of this connector if you don’t buy the version of the tablet that includes a dock. Lenovo doesn’t provide the dock as an optional accessory to purchase later. This is a bit of a questionable decision on Lenovo’s part, and it’s likely to lead to some consumer disappointment.
@@ -116,10 +104,6 @@ Lifewire / Jeremy Laukkonen
 
  The rear of the tablet is mostly featureless, aside from the aforementioned cut-outs. The single rear-facing camera is located in the upper left corner, and that’s about it. Due to the metal construction, it does look and feel more premium than you’d expect from the price.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Display: Looks good, but the resolution could be higher
 
  The 10-inch display is surrounded by fairly slim bezels for a budget Android tablet, offering a screen to body ratio of about 82 percent. The aspect ratio is 16:10, which is pretty close to the standard widescreen ratio of 16:9\. It’s a good compromise between being great for media and usable for email and surfing the web.
@@ -127,10 +111,6 @@ Lifewire / Jeremy Laukkonen
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big. The first generation of the Tab M10 hardware had a full HD display, while this one gives you only a resolution of 800 x 1280 for an abysmal pixel density of about 149 ppi on the big 10-inch IPS LCD screen. It looks fine when held at arm's length, but move it any closer and you can make out the individual pixels like you’re looking at the tablet through a screen door.
 
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Depends on the configuration you get
 
@@ -184,10 +164,6 @@ Lifewire / Jeremy Laukkonen
 
  Finally, I took it out into my garage, about 100 feet from the modem, and the speed dropped to 76.4 Mbps. That’s pretty solid performance, and lines up with my experience of being able to stream media wherever I tried anywhere in my house.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Camera: Decent enough for a budget tablet
 
  Lenovo improved the camera situation in the 2020 version of the Tab M10 HD compared to the first generation, but not enough to provide anything even close to what I’d consider good results. The rear camera is an 8MP shooter that can record 1080p video at 30 FPS, and it also has a 5MP sensor around front for a selfie cam.
@@ -199,10 +175,6 @@ Lifewire / Jeremy Laukkonen
  Photos taken with the rear camera are more or less what I’ve come to expect from devices in this price class. Colors tend to look washed out, and uneven light results in parts of a photo being blown out. In anything less than full daylight outdoors, I noticed a whole lot of noise as well.
 
  The front camera is even worse, and you probably won’t be uploading any selfies taken with this tablet to your Instagram. I found it to work fine for video calls, but my face was always washed out or blown out depending on the lighting conditions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Battery: Could be bigger
 
@@ -217,10 +189,6 @@ Lifewire / Jeremy Laukkonen
  Lenovo doesn’t mess around with stock Android too much, and the Tab M10 HD ships with a very clean, very stock Android 10 experience. It works exactly like you’d expect a stock Android 10 device to work, with the extra apps it forces on you being only the Lenovo Tips app, an FM radio app, and Dolby Atmos.
 
  The biggest news here is that the second gen Tab M10 HD comes with Google Kids Space, which is a great app if you have kids, as it allows you to transform the tablet into a kid-friendly spigot of entertainment. It includes tons of pre-approved apps, books, and videos so you don’t have to worry about curating age-appropriate content. It also integrates with the Google Family Link app, providing you with remote control over screen time limits, bed times, and more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price: Hits the right price point for what you get
 
@@ -287,24 +255,15 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-best-video-and-sound-capture-apps-for-artistic-visionaries/"><u>[New] In 2024, Best Video & Sound Capture Apps for Artistic Visionaries</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-top-tricks-to-control-music-paceplay-in-spotify/"><u>[New] Top Tricks to Control Music Paceplay in Spotify</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-channel-name-inspiration-strategies-for-success/"><u>[Updated] In 2024, Channel Name Inspiration Strategies for Success</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-is-the-samsung-galaxy-a71-5g-a-smart-budget-option-compared-to-top-tier-phones/"><u>Comprehensive Guide: Is the Samsung Galaxy A71 5G a Smart Budget Option Compared to Top-Tier Phones?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-maisto-remote-controlled-rock-crawler-a-top-pick-for-all-generations-to-enjoy-together/"><u>Comprehensive Review of the Maisto Remote Controlled Rock Crawler: A Top Pick for All Generations to Enjoy Together</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-how-the-apple-iphone-se-2020-balances-performance-with-sense-an-in-depth-look/"><u>Discover How the Apple iPhone SE (2020) Balances Performance with Sense: An In-Depth Look</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-insights-on-eero-pro-mesh-wifi-setup-ensuring-complete-home-network-coverage/"><u>Expert Insights on Eero Pro Mesh WiFi Setup: Ensuring Complete Home Network Coverage</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-ultimate-7-cell-phone-options-for-seniors-in-202-4/"><u>Exploring the Ultimate 7 Cell Phone Options for Seniors in 202 4</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Samsung Galaxy A15 4G? | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-snapchat-spotlight-how-and-why-it-matters/"><u>In 2024, Snapchat Spotlight How & Why It Matters</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-2019-ipad-air-by-apple-unleashing-a-new-era-in-multimedia-consumption/"><u>In-Depth Look at the 2019 iPad Air by Apple: Unleashing a New Era in Multimedia Consumption</u></a></li>
-<li><a href="https://win-docs.techidaily.com/introducing-zoey-a-glimpse-into-her-authors-journey-and-talents/"><u>Introducing Zoey - A Glimpse Into Her Authors Journey and Talents</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-storing-passwords-in-google-safe-unveiling-risks/"><u>Is Storing Passwords in Google Safe? Unveiling Risks</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/premier-chillout-pc-game-hits/"><u>Premier Chillout PC Game Hits</u></a></li>
-<li><a href="https://fox-place.techidaily.com/solving-scanner-issues-adjusting-images-without-access-to-brightnesscontrast-controls-insights-by-yl-software/"><u>Solving Scanner Issues: Adjusting Images Without Access to Brightness/Contrast Controls – Insights by YL Software</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-twelve-south-compass-pro-unveiled-innovative-architecture-ensuring-superior-steadfastness/"><u>The Twelve South Compass Pro Unveiled: Innovative Architecture Ensuring Superior Steadfastness</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-resolving-minecraft-game-failure-issues/"><u>Troubleshooting Guide: Resolving Minecraft Game Failure Issues</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-gen-2-upgrade-to-the-google-nest-hub-understanding-its-full-potential-without-video-support/"><u>Unveiling the Gen 2 Upgrade to the Google Nest Hub - Understanding Its Full Potential Without Video Support</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-how-to-produce-a-professional-looking-video-from-photos-and-music/"><u>Updated In 2024, How to Produce a Professional-Looking Video From Photos and Music</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unleashing-creativity-in-education-making-amazing-videography-a-reality-on-youtube/"><u>[New] Unleashing Creativity in Education Making Amazing Videography a Reality on YouTube</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-boost-your-iphones-visual-impact-with-diy-photo-collage-methods/"><u>2024 Approved Boost Your iPhone's Visual Impact with DIY Photo Collage Methods</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-fast-car-chargers-discover-why-experts-love-powerdrive-from-anker/"><u>Budget-Friendly Fast Car Chargers – Discover Why Experts Love PowerDrive From Anker</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/examining-splitcam-top-video-recorder-for-2024/"><u>Examining SplitCam Top Video Recorder for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-expert-analysis-top-5-high-end-recording-apps/"><u>In 2024, Expert Analysis Top 5 High-End Recording Apps</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-factory-reset-ipad-or-apple-iphone-13-pro-without-icloud-password-or-apple-id-by-drfone-ios/"><u>In 2024, How to Factory Reset iPad or Apple iPhone 13 Pro without iCloud Password or Apple ID?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-xbr65x850f-65-inch-4k-tv-quality-and-price-that-wont-break-the-bank/"><u>Sony XBR65X850F (65-Inch) 4K TV: Quality & Price That Won't Break The Bank</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-miniature-masterpiece-powershot-g7x-mark-ii-reviewed/"><u>The Miniature Masterpiece: PowerShot G7X Mark II Reviewed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-av1-300-range-expander-assessment-power-and-limitations-demystified/"><u>TP-Link AV1 300 Range Expander Assessment: Power and Limitations Demystified</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-expert-approved-free-flv-video-editing-solutions-for-2024/"><u>Updated Expert-Approved Free FLV Video Editing Solutions for 2024</u></a></li>
 </ul></div>
 

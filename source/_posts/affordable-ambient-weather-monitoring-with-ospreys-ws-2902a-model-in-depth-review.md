@@ -1,7 +1,7 @@
 ---
 title: Affordable Ambient Weather Monitoring with Osprey's WS-2902A Model - In-Depth Review
-date: 2024-09-09T07:50:19.442Z
-updated: 2024-09-10T07:50:19.442Z
+date: 2025-02-24T01:01:20.409Z
+updated: 2025-03-01T21:08:36.116Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Ambient Weather Monitoring with Osprey's WS-2902A Model - In-Depth Review
@@ -9,38 +9,14 @@ excerpt: This Article Describes Affordable Ambient Weather Monitoring with Ospre
 thumbnail: https://www.lifewire.com/thmb/kWo7HN6oemoL0YOU54NCjKSHuJs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_01LW4140476-1-82fab54d3c6144e1a917758340abb256.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Delivering Premium TV Reception at a Great Value - In-Depth Review of the 30 Mohu Leaf Antenna
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jonno Hill
 
  What We Like
@@ -61,12 +37,6 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
@@ -100,12 +70,6 @@ Lifewire / Jonno Hill
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
@@ -120,12 +84,6 @@ Lifewire / Jonno Hill
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Excellent for the performance**
 
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
@@ -153,14 +111,11 @@ Lifewire / Jonno Hill
 * Range  30 miles
 * Warranty  One year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +124,17 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-best-6-multilingual-video-decoders-for-2024/"><u>[New] Best 6 Multilingual Video Decoders for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-discover-premiere-pro-essentials-free-and-high-quality-for-2024/"><u>[Updated] Discover Premiere Pro Essentials Free & High-Quality for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-unleashing-creativity-capturing-and-editing-impressive-videos-in-adobe-connect/"><u>[Updated] In 2024, Unleashing Creativity Capturing & Editing Impressive Videos in Adobe Connect</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/dive-into-the-user-interface-exploring-the-lenovo-9-inch-nook/"><u>Dive Into the User Interface: Exploring the Lenovo 9-Inch Nook</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-tv-chromecast-unveiled-a-new-contender-against-amazons-firetv/"><u>Google TV Chromecast Unveiled: A New Contender Against Amazon's FireTV!</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-tecno-spark-10-pro-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Tecno Spark 10 Pro FRP Bypass Instantly</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-best-sources-for-pixel-ringtone-downloads/"><u>In 2024, Best Sources for Pixel Ringtone Downloads</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-in-video-earnings-techno-gamers-guide/"><u>In 2024, In-Video Earnings Techno Gamers' Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/netgear-nighthawk-c7000-review/"><u>Netgear Nighthawk C7000 Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premium-showdown-comparing-the-features-of-the-new-ipad-air-4-and-galaxy-tab-s7plus-unveiled/"><u>Premium Showdown: Comparing the Features of the New iPad Air 4 and Galaxy Tab S7+ Unveiled</u></a></li>
+</ul></div>
 

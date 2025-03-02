@@ -1,7 +1,7 @@
 ---
 title: "'Plants Vs. Zombies: Battle for Neighborville': The Ideal Playful Shooter - Review Inside!"
-date: 2024-09-04T18:46:50.240Z
-updated: 2024-09-05T18:46:50.240Z
+date: 2025-02-23T16:04:02.194Z
+updated: 2025-03-02T02:54:39.772Z
 categories:
   - BestProducts
 description: "This Article Describes 'Plants Vs. Zombies: Battle for Neighborville': The Ideal Playful Shooter - Review Inside!"
@@ -62,12 +62,6 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -76,18 +70,6 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -108,12 +90,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -122,30 +98,12 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -158,12 +116,6 @@ Lifewire / Erika Rawes
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Ultra-Thin Antenna
@@ -180,14 +132,11 @@ Lifewire / Erika Rawes
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -196,4 +145,21 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-leap-into-the-future-with-strategic-technology-enhancements/"><u>[New] 2024 Approved Leap Into the Future with Strategic Technology Enhancements</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-unlock-a-world-of-movies-captions-in-windows-media-player-for-2024/"><u>[New] Unlock a World of Movies Captions in Windows Media Player for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-the-cost-vs-benefits-of-amazon-prime/"><u>Comparing the Cost Vs. Benefits of Amazon Prime</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/easy-steps-to-windows-ready-website-apps/"><u>Easy Steps to Windows-Ready Website Apps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevate-your-jrpg-collection-with-yakuza-like-a-dragon-its-an-absolute-game-changer/"><u>Elevate Your JRPG Collection with Yakuza: Like a Dragon – It's an Absolute Game Changer</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-latest-apple-macbook-air-13-inch-model-surpasses-expectations-with-its-innovative-m1-chip/"><u>How The Latest Apple MacBook Air 13-Inch Model Surpasses Expectations With Its Innovative M1 Chip</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Samsung Galaxy A25 5G | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-samsung-galaxy-a24-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Samsung Galaxy A24 FRP?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/innovations-in-videography-infusing-narratives-effortlessly/"><u>Innovations in Videography Infusing Narratives Effortlessly</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/is-the-moto-watch-100-a-wise-investment-uncovering-disappointments-beneath-the-surface-insights-from-zdnet/"><u>Is the Moto Watch 100 a Wise Investment? Uncovering Disappointments Beneath the Surface | Insights From ZDNET</u></a></li>
+<li><a href="https://games-able.techidaily.com/maximize-your-computer-potential-upgrade-to-corsairs-icue-link-and-see-the-difference/"><u>Maximize Your Computer Potential - Upgrade to Corsair's iCUE Link and See the Difference</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-dji-mavic-3-a-leap-forward-in-drone-photography/"><u>Review of DJI Mavic 3: A Leap Forward in Drone Photography</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transformative-upgrades-for-the-core-of-portable-computers/"><u>Transformative Upgrades for the Core of Portable Computers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722875785006-unpacking-the-goodies-that-come-with-a-nintendo-switch-console/"><u>Unpacking the Goodies That Come with a Nintendo Switch Console</u></a></li>
+</ul></div>
 

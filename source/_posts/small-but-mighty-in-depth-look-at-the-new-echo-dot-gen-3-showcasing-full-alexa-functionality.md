@@ -1,7 +1,7 @@
 ---
 title: "Small but Mighty: In-Depth Look at the New Echo Dot (Gen 3) Showcasing Full Alexa Functionality"
-date: 2025-02-08T16:26:36.837Z
-updated: 2025-02-10T21:40:17.153Z
+date: 2025-02-23T00:22:57.589Z
+updated: 2025-03-02T07:09:51.154Z
 categories:
   - BestProducts
 description: "This Article Describes Small but Mighty: In-Depth Look at the New Echo Dot (Gen 3) Showcasing Full Alexa Functionality"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/JogmBSjTGQl_gqbjuX8prgeJJPA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -85,25 +81,13 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easy, but unexplained**
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: You get what you pay for**
 
@@ -128,10 +112,6 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
  The Bitwatch costs about $50, which is reasonable for its features and performance. You get reliable notifications and a passable heart rate monitor, as well as some basic functions like alarms and a speaker. If you want a cheap smartwatch, then the Bitwatch isn’t a bad pick, but $30 more can get you GPS and smarter notifications. If you are after a solid fitness tracker, both Garmin and[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) have[fantastic wearables](https://www.lifewire.com/phone-accessory-reviews-4102587) for under $100.
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: If you want more, it will cost more**
 
@@ -174,16 +154,18 @@ thumbnail: https://thmb.techidaily.com/0d1e6d469f4667c3d31e2ee564e25a93a1f4e0a18
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-exhaustive-evaluation-the-new-360-camera/"><u>[Updated] 2024 Approved Exhaustive Evaluation The New 360 Camera</u></a></li>
-<li><a href="https://win-blog.techidaily.com/bypass-maplestorys-initial-hurdles-and-dive-into-the-game-seamlessly/"><u>Bypass MapleStory's Initial Hurdles & Dive Into the Game Seamlessly</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/essential-8-android-group-calls-over-4-users-in-2024/"><u>Essential 8 Android Group Calls Over 4 Users, In 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lenovo-thinkpad-x12-detachable-review/"><u>Lenovo ThinkPad X12 Detachable Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/lg-stylo-6-analysis-exceptional-aesthetics-with-an-included-pen/"><u>LG Stylo 6 Analysis: Exceptional Aesthetics with an Included Pen</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/macbook-models-side-by-side-what-sets-the-air-apart-from-the-pro/"><u>MacBook Models Side-by-Side: What Sets the Air Apart From the Pro?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-communication-ease-with-the-midland-gxt1nk0vp4-top-reviews-and-features-uncovered/"><u>Mastering Communication Ease with the Midland GXt1nk0VP4 - Top Reviews & Features Uncovered!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-skies-premier-apps-to-forecast-and-follow-storms-in-2hemorrhage-of-2024/"><u>Navigating the Skies: Premier Apps to Forecast and Follow Storms in 2Hemorrhage of 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/prompt-engineering-mastery-for-ai-enthusiasts-career-longevity-prospects/"><u>Prompt Engineering Mastery for AI Enthusiasts: Career Longevity Prospects</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ting-screen-techniques-for-engaging-youtube-content-for-2024/"><u>Splitting Screen Techniques for Engaging YouTube Content for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-tecno-spark-20c-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Tecno Spark 20C Phone Hassle-Free</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-audio-to-video-makers-online/"><u>[New] Audio to Video Makers Online</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-beyond-the-basics-transformative-tactics-for-facebook-advertising/"><u>[Updated] In 2024, Beyond the Basics Transformative Tactics for Facebook Advertising</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-complete-guide-to-oem-unlocking-on-samsung-galaxy-a05-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Samsung Galaxy A05</u></a></li>
+<li><a href="https://games-able.techidaily.com/ace-the-strategy-acquire-spiderman-2-early-edition-ps5/"><u>Ace the Strategy: Acquire SPIDERMAN 2 Early Edition PS5</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-the-power-saving-benefits-of-dual-displays-in-the-new-mobvoi-ticwatch-pro-3-with-precise-gps/"><u>Expert Review: The Power-Saving Benefits of Dual Displays in the New Mobvoi TicWatch Pro 3 with Precise GPS</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1723808344486-how-to-split-screen-on-ipad-benefit-from-multitasking/"><u>How to Split Screen on iPad - Benefit From Multitasking</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Asus ROG Phone 8? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-minecraft-errors-by-updating-or-repairing-damaged-video-card-drivers-on-windows/"><u>Overcoming Minecraft Errors by Updating or Repairing Damaged Video Card Drivers on Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/photoscape-unveiled-an-in-depth-review-of-this-free-powerful-image-manipulation-tool/"><u>PhotoScape Unveiled: An In-Depth Review of This Free Powerful Image Manipulation Tool</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/soundcore-life-q30-headphones-economical-noise-cancellation-examined/"><u>Soundcore Life Q30 Headphones - Economical Noise Cancellation Examined</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-realme-c51-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Realme C51 Location | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-of-nulaxys-km18-bluetooth-car-audio-adapter-classic-function-meets-modern-tech/"><u>Top Review of Nulaxy's KM18 Bluetooth Car Audio Adapter: Classic Function Meets Modern Tech</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transform-everyday-alerts-into-signature-sounds-with-android-tips/"><u>Transform Everyday Alerts Into Signature Sounds with Android Tips</u></a></li>
 </ul></div>
 

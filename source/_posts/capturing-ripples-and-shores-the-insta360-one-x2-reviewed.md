@@ -1,7 +1,7 @@
 ---
 title: "Capturing Ripples & Shores: The Insta360 One X2 Reviewed"
-date: 2025-02-04T05:32:28.898Z
-updated: 2025-02-10T16:25:57.639Z
+date: 2025-02-26T03:20:00.907Z
+updated: 2025-03-02T10:49:51.836Z
 categories:
   - BestProducts
 description: "This Article Describes Capturing Ripples & Shores: The Insta360 One X2 Reviewed"
@@ -40,10 +40,6 @@ Lifewire / Gannon Burgett
 [View On Amazon $969](https://www.amazon.com/dp/B072JW4Z9S/?tag=lifewire-onsite-prod-20&ascsubtag=4689108%7Cn4e541e22b8624c9292b46a113b9d60a708%7CB072JW4Z9S)
 
 4
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Apple iMac 21.5-inch 4K
 
@@ -91,15 +87,7 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/gM_JxuZjDbSUs7DYtXIwUIqqz0Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-3-d30c5f8414e94cbd9b1ec8aea9b18950.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: One plug and you’re good to go**
 
@@ -108,10 +96,6 @@ Lifewire / Gannon Burgett
  Setting up the iMac is as simple as unwrapping it from its protective cover, setting it on the desk, plugging it in with the included power cord, and pressing the power button. As it boots up, we turned on the Magic Keyboard and Magic Mouse 2\. By the time the iMac was to the setup screen — a process that took approximately 60 seconds — the two were already paired with the computer and ready to be used.
 
  Going through the setup process took us approximately five minutes, which included setting up our iCloud account and getting the various login settings in place. We opted to set this up as a new computer, but there’s also the ability to set it up from an Apple Time Capsule backup or transfer content from a PC via USB. The amount of time those options take will vary depending on the device you’re transferring the information from as well as the amount of data being transferred.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display: Bright, brilliant, and ready to shine**
 
@@ -126,10 +110,6 @@ Lifewire / Gannon Burgett
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/IKZ75jBAosAG3M1Py_-E0ElYAfM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-5-a705ea67b88b4cf694c53e4715a9aceb-f57b3be92a934d8ab579d90728e23fe8.jpg)
 
 Lifewire / Gannon Burgett
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Impressive performance from an all-in-one**
 
@@ -160,10 +140,6 @@ Lifewire / Gannon Burgett
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/rFu0_k9BjbUxQdoEYOcNGU35LJA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-2-a3d2f38b9509480ba41bbb5b33815d1a.jpg)
 
  Lifewire / Gannon Burgett
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: Everything you need and nothing more**
 
@@ -196,10 +172,6 @@ Lifewire / Gannon Burgett
 **Beautiful display in a thin, powerful machine.**
 
  The 21.5-inch 4K iMac is a solid all-in-one computer that packs a lot of power into a tiny, well-designed package. It’s not going to blow anyone away on benchmarks and it’s not cheap for the internal components you’re getting, but it has a lot to offer for multimedia and productivity. That’s not to mention the sheer convenience of having everything simply work out of the box.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -238,21 +210,16 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-is-magic-call-voice-changer-app-working-get-alternatives-here/"><u>[Updated] In 2024, Is Magic Call – Voice Changer App Working? Get Alternatives Here</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-voice-customization-leaders-beyond-echo-magic/"><u>[Updated] In 2024, Voice Customization Leaders Beyond Echo Magic</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/2024-approved-secrets-unveiled-saving-twitter-gifs-for-later-use/"><u>2024 Approved Secrets Unveiled Saving Twitter GIFs for Later Use</u></a></li>
-<li><a href="https://some-tips.techidaily.com/designing-my-ideal-connected-household-the-first-five-must-have-features-zdnet/"><u>Designing My Ideal Connected Household: The First Five Must-Have Features | ZDNet</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/embrace-change-on-the-move-with-flexible-tripod-12/"><u>Embrace Change on the Move with Flexible Tripod 12</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-microsoft-surface-ergonomic-keyboard-an-examination-of-premium-build-and-functionality/"><u>Evaluating the Microsoft Surface Ergonomic Keyboard: An Examination of Premium Build and Functionality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exhilarating-overwatch-analysis-thrilling-multiplayer-action-awaits/"><u>Exhilarating Overwatch Analysis: Thrilling Multiplayer Action Awaits</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-on-the-lamicall-tablet-holder-where-form-and-function-collide-seamlessly/"><u>Expert Analysis on the Lamicall Tablet Holder: Where Form and Function Collide Seamlessly</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-excellence-in-affordability-how-the-latest-apple-ipad-102-inches-8th-gen-raises-the-bar-for-value/"><u>Exploring Excellence in Affordability – How The Latest Apple iPad 10.2 Inches (8Th Gen) Raises the Bar for Value</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/holy-stone-cartoon-race-car-unveiled-the-ultimate-choice-for-family-fun-and-learning/"><u>Holy Stone Cartoon Race Car Unveiled: The Ultimate Choice for Family Fun & Learning</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-clear-facebook-broadcast-laptops-and-phones-included/"><u>In 2024, Clear Facebook Broadcast Laptops and Phones Included</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-the-hp-omen-obelisk-ultimate-value-for-gamers-seeking-power/"><u>In-Depth Look at the HP Omen Obelisk - Ultimate Value for Gamers Seeking Power</u></a></li>
-<li><a href="https://network-issues.techidaily.com/never-ending-wi-fi-troubleshooting/"><u>Never-Ending Wi-Fi Troubleshooting</u></a></li>
-<li><a href="https://win-dash.techidaily.com/quick-guide-to-linksys-wrt1900ac-driver-download-for-smooth-operation/"><u>Quick Guide to Linksys WRT1900AC Driver Download for Smooth Operation</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/steam-ui-malfunction-solved-comprehebly-fixing-the-deadly-dll-error-for-gamers/"><u>Steam UI Malfunction Solved - Comprehebly Fixing the Deadly DLL Error for Gamers!</u></a></li>
-<li><a href="https://win11.techidaily.com/unlock-system-peak-potential-utilizing-essential-wintoy-tech/"><u>Unlock System Peak Potential: Utilizing Essential WinToy Tech</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-game-genre-matchups-titles-alike-to-gta-v/"><u>[New] In 2024, Game Genre Matchups Titles Alike to GTA V</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/treamlining-video-production-merging-youtube-editing-and-imovies-best-practices/"><u>[New] Streamlining Video Production Merging YouTube Editing & iMovie's Best Practices</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-efficient-video-editing-with-timestamps-and-on-screen-text/"><u>[Updated] Efficient Video Editing with Timestamps & On-Screen Text</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/get-ready-for-another-surge-in-spotify-subscription-costs/"><u>Get Ready for Another Surge in Spotify Subscription Costs.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/my-journey-away-from-recurring-gaming-memberships-why-you-should-too/"><u>My Journey Away From Recurring Gaming Memberships - Why You Should Too</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-mastering-adobe-premiere-top-6-tricks-for-professional-grade-videos/"><u>New In 2024, Mastering Adobe Premiere Top 6 Tricks for Professional-Grade Videos</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/page-unavailable-access-denied-what-to-do-when-you-encounter-a-missing-webpage/"><u>Page Unavailable: Access Denied – What to Do When You Encounter a Missing Webpage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/protecting-your-privacy-a-guide-to-preventing-surveillance-by-popular-brands-like-lg-samsung-sony-and-vizio/"><u>Protecting Your Privacy: A Guide to Preventing Surveillance by Popular Brands Like LG, Samsung, Sony & Vizio</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/solving-the-mystery-of-minecrafts-error-code-1-in-windows/"><u>Solving the Mystery of Minecraft's Error Code 1 in Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-impact-of-online-gaming-on-the-appeal-of-solo-adventures-my-personal-story/"><u>The Impact of Online Gaming on the Appeal of Solo Adventures: My Personal Story</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-google-pixel-8-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Google Pixel 8? | Dr.fone</u></a></li>
 </ul></div>
 

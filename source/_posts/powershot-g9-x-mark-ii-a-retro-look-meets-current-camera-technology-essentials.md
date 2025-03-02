@@ -1,7 +1,7 @@
 ---
 title: "PowerShot G9 X Mark II: A Retro Look Meets Current Camera Technology Essentials"
-date: 2024-08-31T14:59:19.416Z
-updated: 2024-09-01T14:59:19.416Z
+date: 2025-02-27T04:26:02.088Z
+updated: 2025-03-02T07:34:16.831Z
 categories:
   - BestProducts
 description: "This Article Describes PowerShot G9 X Mark II: A Retro Look Meets Current Camera Technology Essentials"
@@ -38,9 +38,6 @@ Lifewire / Jonno Hill
 
 ## Clearstream ECLIPSE
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
 Lifewire / Jonno Hill
@@ -64,10 +61,6 @@ Lifewire / Jonno Hill
 
  The ClearStream Eclipse is a very simple HDTV antenna suitable for use indoors and mostly in metropolitan areas. There are a dizzying amount of options to choose from in this[best TV antenna](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) space, but this antenna caught my attention by managing to acquire more channels in our signal test despite not requiring an external power source.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
  Lifewire / Jonno Hill
@@ -76,9 +69,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup: Simple and easy**
 
  The ClearStream Eclipse Antenna has the simplest setup of all the HDTV antennas I’ve tested. There is no mounting hardware, no power adapter, and nothing else to worry about. The antenna comes with a strip of adhesive that can be used to affix it directly to a wall or other preferred surface.
@@ -99,17 +89,10 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
  If my testing is any indication of broader performance, there is really no reason to get the Winegard FL5500A FlatWave Antenna instead of the ClearStream Eclipse. The Eclipse is over $10 cheaper ($40 vs $52), and managed to support 8 more channels on average. To add insult to injury, the Winegard FL5500A FlatWave Antenna is amplified using a USB power adapter, which adds a bit of clutter and complication to the overall setup.
@@ -120,9 +103,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  ECLIPSE
@@ -135,14 +115,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Range  35 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,4 +128,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-virtual-venue-verdict-navigating-between-obs-and-twitch-streaming/"><u>[New] In 2024, Virtual Venue Verdict Navigating Between OBS & Twitch Streaming</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-viewer-interest-6-essential-video-formats/"><u>[New] Mastering Viewer Interest 6 Essential Video Formats</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/101plus-nifty-french-phrases-for-savvy-travelers-in-france/"><u>101+ Nifty French Phrases for Savvy Travelers in France</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/avoiding-fuzzy-edges-in-picart-picture-processing/"><u>Avoiding Fuzzy Edges in PicArt Picture Processing</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/innovation-reveal-previewing-the-highlights-at-apples-next-iphone-launch/"><u>Innovation Reveal: Previewing the Highlights at Apple's Next iPhone Launch</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-art-of-photo-prints-using-photoshop-tips/"><u>Mastering the Art of Photo Prints Using Photoshop Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/microsoft-surface-ergonomic-keyboard-review-high-quality/"><u>Microsoft Surface Ergonomic Keyboard Review: High-Quality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-googles-latest-marvel-the-pixel-6-and-its-photographic-prowess/"><u>Reviewing Google's Latest Marvel - The Pixel 6 and Its Photographic Prowess</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revitalize-your-intel-imac-with-this-detailed-system-improvement-guide/"><u>Revitalize Your Intel iMac With This Detailed System Improvement Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/scrutinizing-the-security-of-google-passwords/"><u>Scrutinizing the Security of Google Passwords</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sealocus-oceanfront-silverscreen-slender-design-4k-outdoor-tv-55-unveiled/"><u>Sealocus Oceanfront Silverscreen - Slender Design 4K Outdoor TV (55) Unveiled</u></a></li>
+<li><a href="https://fox-that.techidaily.com/streamlining-your-iphone-photography-experience-strategies-for-managing-and-fixing-issues/"><u>Streamlining Your iPhone Photography Experience: Strategies for Managing and Fixing Issues</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sturdy-and-bright-discover-the-55-inch-veranda-4k-tv-with-high-hdr-quality-by-sunbrite/"><u>Sturdy & Bright: Discover the 55-Inch Veranda 4K TV with High HDR Quality by SunBrite</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-list-of-2024s-most-effective-study-tools/"><u>The Ultimate List of 2024'S Most Effective Study Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-the-aussie-tongue-100plus-terms-guide/"><u>Unlock the Aussie Tongue: 100+ Terms Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/which-vimeo-e-sy-option-suits-your-needs-for-2024/"><u>Which Vimeo E-Sy Option Suits Your Needs for 2024</u></a></li>
+</ul></div>
 

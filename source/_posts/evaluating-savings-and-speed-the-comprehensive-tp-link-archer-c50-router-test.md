@@ -1,7 +1,7 @@
 ---
 title: "Evaluating Savings and Speed: The Comprehensive TP-Link Archer C50 Router Test"
-date: 2025-02-09T23:08:58.337Z
-updated: 2025-02-11T01:23:54.960Z
+date: 2025-02-22T20:40:11.469Z
+updated: 2025-03-01T17:50:33.659Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating Savings and Speed: The Comprehensive TP-Link Archer C50 Router Test"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
@@ -78,10 +74,6 @@ Lifewire / Gannon Burgett
 
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
 
  As for the materials, the metal enclosure and place ends give it a fairly solid feel, but the metal doesn't sit perfectly flush with the plastic ends, at least not in our model. It could be a one-off quality control issue or it might simply be the way in which the charger is constructed, but it's definitely noticeable.
@@ -92,29 +84,17 @@ Lifewire / Gannon Burgett
 
  Charging the device is done via a small 16.8-volt 2.5A plug-in style port on the opposite side of the power button. Overall, the design is roughly what you'd expect from a 50000mAh laptop battery charger. Yes, it's heavy, yes it's quite beefy in size, but it comes with the territory.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Simple to start, but yet another adapter to carry around**
 
  Setting up the MaxOak laptop battery charger is as simple as it gets. After removing it from its unbranded cardboard box, it's simply a matter of plugging it in and getting it charged up completely. Our device came charged at roughly 50% based on the onboard[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) battery indicator, but to complete our tests we wanted it charged entirely, which leads us to our biggest complaint about this charger.
 
  The point of a charger is to have extra battery power on hand when needed so you don't have to carry around unnecessary cables when traveling. Unfortunately, the MaxOak battery pack doesn't use any kind of USB or standardized port. Rather than charging it with a[USB Type-C](https://www.lifewire.com/usb-c-4149490) or even a micro-USB port, the MaxOak battery pack relies on its own proprietary power supply that's nearly as large as most laptop chargers. Sure, the 50000mAh onboard is likely enough that you could leave both the battery pack charger and your laptop charger behind for most events, but eventually you'll run out of juice and rather than reaching for a cable you would probably already have in your bag, you're stuck bringing along a proprietary charger.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Charging Speed and Battery: Slow and steady wins this race**
 
  The MaxOak 50000mAh manages to charge at a decent rate considering its capacity, but we would’ve liked to see more high-powered ports for speedier charging. We charged and fully drained the MaxOak power bank five times and charging took roughly six to eight hours per recharge with an average of seven hours and fifteen minutes.
 
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -184,20 +164,15 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-realms-intersecting-delving-into-vr-augmented-and-mixed-immersion-for-2024/"><u>[New] Realms Intersecting Delving Into VR, Augmented & Mixed Immersion for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-create-unique-instagram-ringtone-at-home/"><u>[Updated] 2024 Approved Create Unique Instagram Ringtone at Home</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-perfect-multitasking-media-setup-tips-for-using-pip-on-netflix/"><u>[Updated] Perfect Multitasking Media Setup Tips for Using PIP on Netflix</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-beyond-auto-smart-strategies-for-flawless-hue-harmonization/"><u>2024 Approved Beyond Auto Smart Strategies for Flawless Hue Harmonization</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-qp-value-enhancing-gradual-movement-vids/"><u>2024 Approved Top QP Value Enhancing Gradual Movement Vids</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-in-depth-vita-video-editing-analysis-and-step-by-step-guide/"><u>In 2024, In-Depth Vita Video Editing Analysis & Step-by-Step Guide</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/inside-toms-computer-lab-in-depth-hardware-evaluations/"><u>Inside Tom's Computer Lab: In-Depth Hardware Evaluations</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/premier-paint-shop-pro-tricks/"><u>Premier Paint Shop Pro Tricks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/testing-the-limits-of-4k-with-hc-wxf991/"><u>Testing the Limits of 4K with HC-WXF991</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-of-both-worlds-a-review-of-the-huawei-p20-pros-superior-camera-and-excellent-handset-quality/"><u>The Best of Both Worlds: A Review of the Huawei P20 Pro's Superior Camera and Excellent Handset Quality</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-complete-walkthrough-to-enhancing-your-intel-imacs-software-and-hardware/"><u>The Complete Walkthrough to Enhancing Your Intel iMac's Software and Hardware</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-buying-an-affordable-amazon-kindle-the-2019-edition/"><u>The Essential Guide to Buying an Affordable Amazon Kindle - The 2019 Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-intellectual-appeal-of-tcls-streamlined-smart-tv-a-deep-dive-into-the-roku-s325-model/"><u>The Intellectual Appeal of TCL's Streamlined Smart TV - A Deep Dive Into the Roku S325 Model</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-2024-workout-music-guide/"><u>The Ultimate 2024 Workout Music Guide</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-8-must-have-ebook-reader-apps-for-avid-readers/"><u>Top 8 Must-Have Ebook Reader Apps for Avid Readers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-iphone-models-for-an-immersive-gaming-experience/"><u>Best iPhone Models for an Immersive Gaming Experience</u></a></li>
+<li><a href="https://win-net.techidaily.com/best-practices-for-cleaning-up-your-computer-removing-unwanted-apps-and-files-guidance-from-yl-computing/"><u>Best Practices for Cleaning Up Your Computer: Removing Unwanted Apps & Files - Guidance From YL Computing</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-asus-bt500-bluetooth-50-usb-dongle-driver-for-windows-11-10-and-8/"><u>Download Asus BT500 Bluetooth 5.0 USB Dongle Driver for Windows 11, 10 & 8</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-can-the-samsung-cf591-deliver-high-quality-gaming-experiences/"><u>Expert Analysis: Can the Samsung CF591 Deliver High-Quality Gaming Experiences?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Vivo X Fold 2? | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723011151278-overcoming-the-load-fixing-far-cry-5-endless-boot-loop/"><u>Overcoming the Load: Fixing 'Far Cry 5' Endless Boot Loop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/quick-and-sturdy-online-linking-with-the-tiny-size-u631-usb-wi-fi-adapter-a-smart-choice-for-fast-networking/"><u>Quick & Sturdy Online Linking with the Tiny Size U631 USB Wi-Fi Adapter - A Smart Choice for Fast Networking</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/resolve-silent-tweets-video-audio-woes-for-2024/"><u>Resolve Silent Tweets Video Audio Woes for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-performance-potential-a-detailed-review-of-the-netgear-c3700-as-an-effective-modem/"><u>Unlocking Performance Potential: A Detailed Review of the Netgear C3700 as an Effective Modem</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-iphone-11-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud On your iPhone 11</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In Rectangular Channels, A Is Width Times Depth and P Is the Sum of All Sides in Contact with Water.
-date: 2025-02-05T19:22:13.021Z
-updated: 2025-02-10T23:09:56.904Z
+date: 2025-02-23T20:03:02.929Z
+updated: 2025-03-01T21:13:29.121Z
 categories:
   - BestProducts
 description: This Article Describes In Rectangular Channels, A Is Width Times Depth and P Is the Sum of All Sides in Contact with Water.
@@ -46,10 +46,6 @@ Erika Rawes / Lifewire
 [View On Amazon $160](https://www.amazon.com/dp/B08RN62ZG3?tag=lifewire-onsite-prod-20&ascsubtag=5113128%7Cn5dea767cc9f34467931c02c7ed3801cc22%7CB08RN62ZG3)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Raspberry Pi 400
 
@@ -99,10 +95,6 @@ Erika Rawes / Lifewire
 
  On the back of the Pi 400, you’ll find a slot for the microSD card, as well as all of the ports. It has two micro HDMI slots, three USB slots (two 3.0 and one 2.0), a horizontal 40-pin GPIO header, and the port for the power supply. The power button is on the keyboard itself—press F10 to power on the Pi, and press Fn + F10 to power it off.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Setup Process: Easier than previous Pi models
 
  The Raspberry Pi 400 is still...well, a[Raspberry Pi](https://www.lifewire.com/raspberry-pi-4102621) . It isn’t a traditional PC in the sense that it doesn’t have full capabilities like a typical laptop,[desktop computer](https://www.lifewire.com/best-desktop-pcs-4045927) , or even mini computer. The Pi is just a computer—it doesn’t even have an operating system unless you add one (fortunately, this Pi includes the OS with the kit). Even when you add the OS, the Pi has a relatively barebones interface. The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
@@ -123,19 +115,11 @@ Erika Rawes / Lifewire
 
 Erika Rawes / Lifewire
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Display: Dual mini HDMI ports
 
  The Pi 400 has two mini HDMI slots, so you could connect two displays if you wanted to. It can display in 4K as well, which is impressive for a mini PC under $100\.
 
  The Raspberry Pi 400 doesn’t have a DSI port for connecting a capacitive touchscreen display, but you can connect just about any compatible HDMI monitor as long as you use a micro HDMI to[HDMI cable](https://www.lifewire.com/hdmi-cables-and-connectors-what-you-need-to-know-4685377) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Not bad for the size
 
@@ -157,10 +141,6 @@ Erika Rawes / Lifewire
 
  The accessories tab includes a PDF viewer and a calculator, as well as a text editor and an SD card copier. You also have a basic web browser—plenty of tools to get you started.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Audio: Bluetooth connectivity
 
  You won’t find built-in speakers, but the Pi 400 will play audio on your monitor’s speakers when you use the HDMI to mini HDMI cable included in the kit. It also has Bluetooth for connecting a pair of wireless headphones. I had no problem connecting a few different types of Bluetooth headphones to the Pi. There’s no audio output jack, but you can connect compatible USB speakers if you launch the appropriate USB commands in the terminal.
@@ -168,10 +148,6 @@ Erika Rawes / Lifewire
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/vAb_0QFg4Uze6uuiSMlTPtkw_CA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-5-b326f92abc1a4349910f0b7b5d0e2d53.jpg)
 
 Erika Rawes / Lifewire
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Network: Ethernet or dual-band Wi-Fi
 
@@ -187,19 +163,11 @@ Erika Rawes / Lifewire
 
  Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Software: Learn to code
 
  In addition to a basic office suite, photo processing software, and games, the Pi 400 Kit comes with several coding applications like Scratch, Scratch 2, Scratch 3, Blue Jay Java IDE, Green Foot Java IDE, Geany, Mathematica, Sense HAT Emulator, and more.
 
  Although the Raspberry Pi OS is basic, the included applications make this an ideal computer for a beginner who wants to learn basic computer programming skills. The interface includes a direct connection to the Pi site, where you can find numerous project ideas from 3D print templates to robotics projects.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price: An amazing value
 
@@ -253,22 +221,22 @@ Erika Rawes / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-ultimate-facebook-playbook-for-business-growth-30-key-points/"><u>[New] 2024 Approved The Ultimate Facebook Playbook for Business Growth (30 Key Points)</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-leading-microphones-selection-for-uncompromised-4k-clarity/"><u>[Updated] In 2024, Leading Microphones Selection for Uncompromised 4K Clarity</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/best-methods-for-cutting-and-editing-movies-for-free-tips-for-windows-11-mac-os-x-and-more/"><u>Best Methods for Cutting & Editing Movies for Free: Tips for Windows 11, Mac OS X and More</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-the-ultimate-simplified-journey-for-metaverse-personas/"><u>In 2024, The Ultimate Simplified Journey for Metaverse Personas</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Vivo X90S? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-realme-narzo-60-5g-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Realme Narzo 60 5G Phone Pattern Lock</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia C12 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-x-plane-11-the-ultimate-contemporary-global-flight-experience-and-visual-masterpiece/"><u>In-Depth Look at X-Plane 11 - The Ultimate Contemporary Global Flight Experience and Visual Masterpiece</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/masterclass-review-how-the-bookbook-v2-from-twelve-south-elevates-macbook-protection-and-style/"><u>MasterClass Review: How the BookBook V2 From Twelve South Elevates MacBook Protection and Style</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-google-voice-a-thorough-evaluation-and-recommendations/"><u>Navigating Google Voice: A Thorough Evaluation and Recommendations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-of-the-outer-worlds-engaging-science-fiction-and-thrilling-gameplay/"><u>Review of The Outer Worlds - Engaging Science Fiction and Thrilling Gameplay</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-beloved-budget-device-insights-on-the-tp-link-archer-c9/"><u>Reviewing the Beloved Budget Device: Insights on the TP-Link Archer C9</u></a></li>
-<li><a href="https://windows11.techidaily.com/solutions-for-onedrive-sync-fails-in-windows-os/"><u>Solutions for OneDrive Sync Fails in Windows OS</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-case-for-elevating-your-spotify-experience/"><u>The Case for Elevating Your Spotify Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-elite-list-unrivaled-usb-wi-fi-adapter-options-for-ultimate-online-experience-2024-edition/"><u>The Elite List: Unrivaled USB Wi-Fi Adapter Options for Ultimate Online Experience, 2024 Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-joy-of-dual-cam-playfulness/"><u>The Joy of Dual Cam Playfulness</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/top-5-solutions-for-resolving-audio-problems-in-windows-11/"><u>Top 5 Solutions for Resolving Audio Problems in Windows 11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-mastering-script-structuring/"><u>[New] In 2024, Mastering Script Structuring</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-mixer-streams-on-macos-a-step-by-step-guide/"><u>[New] Mastering Mixer Streams on macOS A Step-by-Step Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-saving-your-iphone-screen-a-step-by-step-approach-for-2024/"><u>[Updated] Saving Your iPhone Screen A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-interactive-media-adding-audio-to-visual-narratives/"><u>2024 Approved Interactive Media Adding Audio to Visual Narratives</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/bards-next-level-upgrade-7-incredible-features-introduced-at-googles-biggest-tech-event-io-202cuy/"><u>BARD's Next Level Upgrade: 7 Incredible Features Introduced at Google’s Biggest Tech Event, I/O 202Cuy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/choosing-the-best-tv-show-streamers-your-definitive-guide/"><u>Choosing the Best TV Show Streamers - Your Definitive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-choosing-high-performance-range-routers/"><u>Comprehensive Guide to Choosing High-Performance Range Routers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gps-watch-review-is-the-garmin-forerunner-45-a-must-have-for-your-running-journey/"><u>GPS Watch Review: Is the Garmin Forerunner 45 a Must-Have for Your Running Journey?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-alienware-aurora-r7-exceptional-power-meets-its-price-tag/"><u>In-Depth Analysis of Alienware Aurora R7: Exceptional Power Meets Its Price Tag</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-audio-division-made-simple-techniques-for-cutting-sound-files-for-2024/"><u>New Audio Division Made Simple Techniques for Cutting Sound Files for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Samsung Galaxy A05? | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/protecting-corporate-information-with-ease-unveiling-bitrasers-advanced-data-destruction-software-video/"><u>Protecting Corporate Information with Ease: Unveiling BitRaser's Advanced Data Destruction Software (Video)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-lamicall-s-tablet-mounting-solution-an-insightful-review-focusing-on-ergonomics-and-efficiency/"><u>The Lamicall S Tablet Mounting Solution - An Insightful Review Focusing on Ergonomics and Efficiency</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-wastelands-ii-directors-cut-gaming-review-an-engrossing-tactical-adventure/"><u>The Wastelands II - Director's Cut Gaming Review: An Engrossing Tactical Adventure</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-2024-alternatives-to-microsoft-office-a-comprehensive-guide/"><u>Top 2024 Alternatives to Microsoft Office: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-wired-headphones-selection/"><u>Unveiling the Best Wired Headphones Selection</u></a></li>
 </ul></div>
 

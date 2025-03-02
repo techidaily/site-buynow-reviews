@@ -1,7 +1,7 @@
 ---
 title: "Value Meets Innovation in the ArcShell AR-5: A Full Performance Breakdown"
-date: 2025-02-09T20:38:41.491Z
-updated: 2025-02-11T06:52:29.226Z
+date: 2025-02-27T03:33:41.279Z
+updated: 2025-03-02T08:06:35.101Z
 categories:
   - BestProducts
 description: "This Article Describes Value Meets Innovation in the ArcShell AR-5: A Full Performance Breakdown"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/6d8730f2a77f7bacc79151a55ebc1a6b3c6364485
 ## Apple iPad Pro 11-Inch (2018)
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/XAxnGc_g0AZSliRVCCVfXsB5Wug=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_HeroSquare-b5f2405776244188aa59f67503531baf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jordan Provost
 
@@ -49,10 +45,6 @@ Lifewire / Jordan Provost
 ## Apple iPad Pro 11-Inch (2018)
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/SgNIbLZ961-p9WD7at7-M5m8Tuk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_HeroSquare-b5f2405776244188aa59f67503531baf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jordan Provost
 
@@ -118,15 +110,7 @@ Lifewire / Jordan Provost
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/GV44W9kKlQd3SXT_XaWI-tjo6Cw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_6-2bcb5b2009154c92931411045a9b6ddc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Provost
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display: Rich colors and smooth motion**
 
@@ -166,10 +150,6 @@ Lifewire / Jordan Provost
 
  One of the major upgrades to the Pro is the stereo effect audio playback with four powerful speakers, two on either side of the device. The iPad Pro has truly stunning audio, and if you crank it up it could easily act as a party speaker. There is absolutely no need for anything external when watching video content. Amazingly, the fidelity of the audio never seems to suffer, even at full volume. Apple ditching the headphone jack poses an interesting problem in that you’re going to need a pair of Bluetooth headphones or buy an adapter to receive audio on the go.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Network: Reasonable connectivity**
 
  In terms of signal strength, we struggled to get the WiFi to break by walking outside and away from our router. In the garden and the garage ( a usual drop-out spot for other devices) it held true in very reasonable fashion.
@@ -190,10 +170,6 @@ Lifewire / Jordan Provost
 
  Take a peek at some of the[best camera apps](https://www.lifewire.com/best-iphone-camera-apps-4176231) you can download.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery: All-day usage**
 
  This is an all-day device, and should last you roughly around 10 hours of regular use, as per our testing. We spent almost a full working day pushing it using Split View to draft articles, with some Procreate drawing and Netflix streaming in between, and the iPad Pro clocked out at around 9 hours. However, we found some apps like Google Docs drain the battery more than most, so it varies depending on your workflow. Much like the Apple Watch, if you’re not a power user this tablet could last you a number of days before needing a fresh charge.
@@ -210,19 +186,11 @@ Lifewire / Jordan Provost
 
  iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Well worth the money if you can justify it**
 
  As far as tablets go, one of the main reasons many people are put off by the iPad Pro is the existence of far cheaper options. Our review model (11-inch, 64GB) retails for $799, and you may well be inclined to upgrade both the size and the capacity to suit your needs. This doesn’t factor in some of the more essential accessories with jaw-dropping prices like the Apple Pencil, Smart Keyboard, and the Bluetooth headphones necessary to navigate the lack of a headphone jack. That can lead to a very expensive purchase, and with Apple products, it can be hard to tell whether they are worth it case by case.
 
  Luckily, the 11-inch iPad Pro is such a revolutionary upgrade on most tablets that you do truly get what you pay for here. The A12X Bionic puts it leagues ahead of the competition, making it the most powerful productivity machine for professional creatives on the market. There is nothing really competing at this price range beyond.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Hard to beat**
 
@@ -235,10 +203,6 @@ Lifewire / Jordan Provost
  **The 2018 iPad Pro is a stylish device of unparalleled power.**
 
  With utterly seamless navigation and playback, fantastic speakers and world-class accessories and performance, this is a beautifully designed piece of hardware. Unfortunately, whilst the power is there, it is held back by its own operating system, forcing you into busywork or compromising missteps. It cannot replace your laptop just yet, but it may well make it redundant based on your use case.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -274,21 +238,21 @@ Lifewire / Jordan Provost
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-harnessing-windows-10-tools-for-exquisite-video-editing-for-2024/"><u>[New] Harnessing Windows 10 Tools for Exquisite Video Editing for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-visual-storytelling-adding-captions-to-images-in-oses/"><u>[Updated] 2024 Approved Visual Storytelling Adding Captions to Images in OSes</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-top-picks-for-gaming-displays-on-xbox-series-x-console/"><u>[Updated] Top Picks for Gaming Displays on Xbox Series X Console</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ace-your-energy-conversion-with-top-power-inverters-of-the-year/"><u>Ace Your Energy Conversion with Top Power Inverters of the Year</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-and-lightweight-microsoft-surface-laptop-go-a-detailed-product-assessment/"><u>Affordable & Lightweight Microsoft Surface Laptop Go - A Detailed Product Assessment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-and-durable-omoton-t1-tablet-stand-gets-expert-reviews/"><u>Affordable and Durable: Omoton T1 Tablet Stand Gets Expert Reviews</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722569405223-analyzing-the-strengths-and-weaknesses-of-pidgin-chat-application/"><u>Analyzing the Strengths & Weaknesses of Pidgin Chat Application</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/from-basic-snaps-to-spectacular-shots-snapchats-edits-for-everyone-for-2024/"><u>From Basic Snaps to Spectacular Shots Snapchat's Edits for Everyone for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722957432894-get-the-newest-brother-mfc-7360n-driver-update-smooth-setup-on-windows-1087/"><u>Get the Newest Brother MFC-7360N Driver Update – Smooth Setup on Windows 10/8/7!</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-se-2020-without-swiping-up-6-ways-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone SE (2020) Without Swiping Up? 6 Ways | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-vivo-y200-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Vivo Y200 without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-audible-trials-are-your-first-step-for-audio-enrichment/"><u>Why Audible Trials Are Your First Step for Audio Enrichment</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-choose-motorola-one-unveiling-its-iphone-like-appeal-for-just-pennies-on-the-dollar/"><u>Why Choose Motorola One? Unveiling Its iPhone-Like Appeal for Just Pennies on the Dollar!</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/windows-11-and-android/"><u>Windows 11 & Androidの動画圧縮テクニック：ファイルサイズ最適化にガイド</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/word-basics-how-to-easily-include-lines-in-your-text/"><u>Word Basics: How to Easily Include Lines in Your Text</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/zmi-powerpack-20000-review/"><u>ZMI PowerPack 20000 Review</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-final-goodbye-to-youtubes-minis-a-step-by-step-process/"><u>[Updated] 2024 Approved Final Goodbye to YouTube's Minis A Step-by-Step Process</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/bamboo-laboratorys-ultra-fast-bed-slinger-unveiling-the-a1-model-on-dec-14th/"><u>Bamboo Laboratory's Ultra-Fast Bed Slinger: Unveiling the A1 Model on Dec. 14Th</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-gimp-the-premier-free-cross-platform-photo-editing-tool/"><u>Comprehensive Analysis of GIMP - The Premier FREE Cross-Platform Photo Editing Tool</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-walkthrough-configuring-the-blink-outdoor-4-camera/"><u>Comprehensive Walkthrough: Configuring the Blink Outdoor 4 Camera</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insight-into-the-byb-e430-led-headlight-premier-pivot-arm-illumination-reviewed/"><u>Expert Insight Into the BYB E430 LED Headlight: Premier Pivot Arm Illumination Reviewed</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-oneplus-ace-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-the-eufy-t8200-video-doorbell-changes-home-security-without-subscriptions/"><u>How the Eufy T8200 Video Doorbell Changes Home Security Without Subscriptions</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-xiaomi-redmi-12-5g-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-motion-mastery-kit-premium-no-cost-design-tools/"><u>In 2024, Motion Mastery Kit Premium, No-Cost Design Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-render-photos-add-inward-radiant-spread-in-photoshop/"><u>In 2024, Render Photos Add Inward Radiant Spread in Photoshop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-amazon-fire-hd-10-kids-edition-and-its-exceptional-safety-settings/"><u>In-Depth Analysis: Amazon Fire HD 10 Kids Edition and Its Exceptional Safety Settings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/premier-console-contenders-shaping-the-gaming-scene/"><u>Premier Console Contenders Shaping the Gaming Scene</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/prime-gpus-for-sharp-4k-image-display/"><u>Prime GPUs for Sharp 4K Image Display</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/share-the-moment-effortlessly-push-photos-to-social-networks-for-2024/"><u>Share the Moment Effortlessly Push Photos to Social Networks for 2024</u></a></li>
+<li><a href="https://discover-great.techidaily.com/understanding-chinas-cultural-revolution-insights-and-impact-analysis-by-yl-computing/"><u>Understanding China's Cultural Revolution: Insights & Impact - Analysis by YL Computing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-your-reading-potential-the-essentials-of-kindle-unlimited-membership/"><u>Unlock Your Reading Potential: The Essentials of Kindle Unlimited Membership</u></a></li>
 </ul></div>
 

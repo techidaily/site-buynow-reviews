@@ -1,7 +1,7 @@
 ---
 title: "X-Plane 11 Global Flight Simulator Review: Excellent Visuals in a Next-Gen Flight Sim"
-date: 2025-02-06T01:10:17.530Z
-updated: 2025-02-11T05:38:40.417Z
+date: 2025-02-28T09:37:50.993Z
+updated: 2025-03-02T11:11:19.610Z
 categories:
   - BestProducts
 description: "This Article Describes X-Plane 11 Global Flight Simulator Review: Excellent Visuals in a Next-Gen Flight Sim"
@@ -67,10 +67,6 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -91,10 +87,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
@@ -102,10 +94,6 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -121,10 +109,6 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -136,10 +120,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -172,15 +152,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-perfect-frame-a-guide-to-polishing-videos-with-instagram-edits/"><u>[New] 2024 Approved The Perfect Frame A Guide to Polishing Videos with Instagram Edits</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-vlog-production-top-8-mirrorless-cameras-ranked-for-2024/"><u>[New] Mastering Vlog Production Top 8 Mirrorless Cameras Ranked for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-erase-unwanted-focus-affinity-photo/"><u>2024 Approved Erase Unwanted Focus - Affinity Photo</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-top-drawing-tablets-tailored-for-professionals/"><u>Comprehensive Review: Top Drawing Tablets Tailored for Professionals</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/elite-6-behemoths-vast-scale-data-model-summit/"><u>Elite 6 Behemoths: Vast-Scale Data Model Summit</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/exploring-the-essential-role-of-chatgpts-programming-translator-in-ai-development/"><u>Exploring the Essential Role of ChatGPT's Programming Translator in AI Development</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/m3-macbook-air-top-benefits-justifying-purchase/"><u>M3 MacBook Air: Top Benefits Justifying Purchase</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-complete-review-on-bouncies-driving-connection-your-answer-to-inexpensive-straightforward-gps-tracking/"><u>The Complete Review on Bouncie’s Driving Connection: Your Answer to Inexpensive, Straightforward GPS Tracking!</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-tips-for-iphone-users-with-problems-accessing-aol-mail/"><u>Troubleshooting Tips for iPhone Users With Problems Accessing AOL Mail</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/viber-out-review/"><u>Viber Out Review</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-how-to-record-powerpoint-presentation-with-webcam/"><u>[New] 2024 Approved How to Record PowerPoint Presentation with Webcam</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-from-zero-to-zoom-expert-launching-successful-webinars-for-2024/"><u>[Updated] From Zero to Zoom Expert Launching Successful Webinars for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-ultimate-tutorial-implementing-gamers-channel-banners/"><u>2024 Approved Ultimate Tutorial Implementing Gamers' Channel Banners</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/arfid-avoidant-restrictive-food-intake-disorder/"><u>ARFID = Avoidant Restrictive Food Intake Disorder;</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-motorola-moto-e13-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Motorola Moto E13 Quickly | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-and-set-up-drivers-for-an-xbox-360-gaming-controller/"><u>How to Get and Set Up Drivers for an Xbox 360 Gaming Controller</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-d-link-powerline-adapter-2000-straightforward-configuration-and-high-speed-data-transmission/"><u>In-Depth Review of D-Link Powerline Adapter 2000: Straightforward Configuration and High-Speed Data Transmission</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-xbox-series-s-analysis-compact-design-with-powerful-performance/"><u>In-Depth Xbox Series S Analysis: Compact Design with Powerful Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/insightful-breakdown-of-ambient-weather-ws-1002-elevated-quality-justifies-the-investment/"><u>Insightful Breakdown of Ambient Weather WS-1002 - Elevated Quality Justifies the Investment?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/leadership-spotlight-abbyy-hails-as-a-premier-contender-on-the-202e-idp-peak-matrix-endorsement-by-everest-group/"><u>Leadership Spotlight: ABBYY Hails as a Premier Contender on the 202E IDP PEAK Matrix - Endorsement by Everest Group</u></a></li>
+<li><a href="https://win-forum.techidaily.com/overcoming-class-not-registered-bugs-in-windows-with-simple-tricks-and-tweaks/"><u>Overcoming ‘Class Not Registered’ Bugs in Windows with Simple Tricks and Tweaks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/score-amazing-deals-on-apple-tech-during-the-prime-day-event/"><u>Score Amazing Deals on Apple Tech During the Prime Day Event</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-lg-k92-assessing-whether-5g-connectivity-justifies-the-investment/"><u>Unpacking the LG K92 – Assessing Whether 5G Connectivity Justifies the Investment</u></a></li>
 </ul></div>
 

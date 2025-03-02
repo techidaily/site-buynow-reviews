@@ -1,7 +1,7 @@
 ---
 title: Mastering Gaming with the Elite Series 2 - The Ultimate Xbox One Controller Review
-date: 2025-02-09T23:50:19.913Z
-updated: 2025-02-11T07:46:08.407Z
+date: 2025-02-28T02:11:48.999Z
+updated: 2025-03-02T03:13:56.117Z
 categories:
   - BestProducts
 description: This Article Describes Mastering Gaming with the Elite Series 2 - The Ultimate Xbox One Controller Review
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/rmUXnTAblkDWTe3mQ0JlvrGZKt0=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Microsoft Xbox One Elite Series 2 Controller
 
@@ -50,10 +46,6 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Zach Sweat
 
 [View On Amazon $150](https://www.amazon.com/Elite-2-Controller-Black-Xbox-One/dp/B07SFKTLZM/?tag=lifewire-onsite-prod-20&ascsubtag=4796457%7Cnbd5105eb0dc54e3e804df51703e5036902%7CB07SFKTLZM) [View On Walmart $150](https://www.walmart.com/ip/Microsoft-Xbox-Elite-Wireless-Controller-Series-2-Black-FST-00001/784834522) [View On Adorama.com $180](https://www.adorama.com/xbfst00001.html)
@@ -81,10 +73,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Dark, sturdy, and feature-packed**
 
  The general format of the Elite Series 2 takes the basic XB1 controller and builds upon that excellent design by adding in tons of extras and features. However, unlike the first Elite controller, this version uses the newer One S model controller as its basis. This means there is no more two-piece design where the top and bottom shells of the controller are separate. The build is less flashy perhaps, no longer sporting a two-tone finish, but it makes it feel much more solid and creates a sleeker look.
@@ -110,10 +98,6 @@ Lifewire / Zach Sweat
  Inside the case, the material has also been swapped from grey to black to continue the darker theme of the Series 2\. You’ll also notice the foam pad is no longer here, as that’s where the dock sits. This dock can be removed or used inside the case and attaches with a strong magnet. The last two parts of the case are unchanged from Series 1, with a mesh cradle for accessories on the top and a foam organizer to hold all the swappable thumbsticks and paddles when not in use.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -153,10 +137,6 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 ## **Performance/Durability: Enhanced performance and durability**
@@ -180,10 +160,6 @@ Lifewire / Zach Sweat
  The bumpers on every XB1 controller up until the One S were another point of failure due to the thin plastic piece that attached them to the controller. If you dropped your controller in just the right spot, even from a short height, they often broke and flopped around, requiring you to either send it in for repair or fix it yourself at home. The original Elite also suffered from this, and I experienced this with my first device. Now that the Series 2 is built off the S controller, this is supposedly no longer an issue.
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Like buying a brand new console**
 
@@ -243,16 +219,22 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-mastering-the-mark-crafting-unique-podcast-graphics/"><u>[New] In 2024, Mastering the Mark Crafting Unique Podcast Graphics</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-set-up-facebook-cover-videos/"><u>[New] In 2024, Set up Facebook Cover Videos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/battle-of-the-streamers-apple-tv-4k-versus-roku-ultra-a-comprehensive-review/"><u>Battle of the Streamers: Apple TV 4K versus Roku Ultra - A Comprehensive Review</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-lava-yuva-3-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Lava Yuva 3 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/biocompatibility-is-non-negotiable-materials-must-not-cause-adverse-reactions-in-the-body/"><u>Biocompatibility Is Non-Negotiable; Materials Must Not Cause Adverse Reactions in the Body.</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-conscious-beats-the-oneplus-buds-journey/"><u>Budget-Conscious Beats: The OnePlus Buds Journey</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/canon-eos-rebel-t7-kit-review-the-newest-rebel-camera-is-a-noteworthy-improvement/"><u>Canon EOS Rebel T7 Kit Review: The Newest Rebel Camera Is a Noteworthy Improvement</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722977159599-download-and-install-the-latest-brother-hl-l2300d-printer-drivers/"><u>Download and Install the Latest Brother HL-L2300D Printer Drivers</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-motorola-moto-e13-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Motorola Moto E13 Device</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-samsung-galaxy-z-flip-5-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Samsung Galaxy Z Flip 5</u></a></li>
-<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-realme-11-proplus-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Realme 11 Pro+</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-ultimate-tech-comforts-with-luxury-desktops/"><u>[New] 2024 Approved Ultimate Tech Comforts with Luxury Desktops</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-a-closer-look-ffmpeg-for-pristine-audio-extraction/"><u>[New] A Closer Look FFmpeg for Pristine Audio Extraction</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-when-your-tiktok-stalls-how-to-restore-functionality/"><u>[New] In 2024, When Your TikTok Stalls How to Restore Functionality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-financial-investment-for-youtube-ads-success/"><u>[Updated] 2024 Approved Financial Investment for Youtube Ads Success</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-from-your-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID From Your iPhone 14 Pro Max</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-how-to-change-the-privacy-setting-on-your-youtube-videos/"><u>In 2024, How to Change the Privacy Setting on Your YouTube Videos</u></a></li>
+<li><a href="https://solve-help.techidaily.com/mp4gif202-48/"><u>MP4からGIFへ変換!「202 4」のおすすめサイトトップ8選び:ガイド</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/start-up-von-windows-server-201/"><u>Start-Up Von Windows Server 201</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-from-lone-explorer-to-team-player-how-multiplayer-shaped-my-game-experience/"><u>Transforming From Lone Explorer to Team Player: How Multiplayer Shaped My Game Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-watching-netflix-live-through-discord/"><u>Ultimate Guide: Watching Netflix Live Through Discord</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upcoming-end-date-xbox-360-content-library-discontinues-service-for-the-month/"><u>Upcoming End Date: Xbox 360 Content Library Discontinues Service for the Month</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/watching-music-unfold-spotifys-latest-addition-of-official-song-videos/"><u>Watching Music Unfold: Spotify's Latest Addition of Official Song Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/weekly-update-changes-coming-to-netflixs-basic-plan-and-enhanced-techniques-in-iphone-restoration/"><u>Weekly Update: Changes Coming to Netflix's Basic Plan & Enhanced Techniques in iPhone Restoration</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-you-need-to-hit-the-pause-button-on-apple-music-listening-records-for-better-security/"><u>Why You Need to Hit the Pause Button on Apple Music Listening Records for Better Security</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/wiring-up-your-xbox-gaming-pad-for-use-on-windows-or-mac-desktops-and-laptops/"><u>Wiring Up Your Xbox Gaming Pad for Use on Windows or Mac Desktops and Laptops</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/youtube-music-introduces-new-ai-powered-station-functionality-similar-to-spotifys-smart-playlists/"><u>YouTube Music Introduces New AI-Powered Station Functionality, Similar to Spotify's Smart Playlists</u></a></li>
 </ul></div>
 

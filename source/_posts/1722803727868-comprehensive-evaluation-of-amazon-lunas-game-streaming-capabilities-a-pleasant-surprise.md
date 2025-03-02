@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of Amazon Luna's Game Streaming Capabilities - A Pleasant Surprise!
-date: 2024-09-04T18:43:14.647Z
-updated: 2024-09-05T18:43:14.647Z
+date: 2025-02-26T16:58:17.277Z
+updated: 2025-03-02T07:17:58.496Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of Amazon Luna's Game Streaming Capabilities - A Pleasant Surprise!
@@ -69,12 +69,6 @@ Lifewire / Jonno Hill
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Simple and easy**
 
  The ClearStream Eclipse Antenna has the simplest setup of all the HDTV antennas I’ve tested. There is no mounting hardware, no power adapter, and nothing else to worry about. The antenna comes with a strip of adhesive that can be used to affix it directly to a wall or other preferred surface.
@@ -87,54 +81,18 @@ Lifewire / Jonno Hill
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
  If my testing is any indication of broader performance, there is really no reason to get the Winegard FL5500A FlatWave Antenna instead of the ClearStream Eclipse. The Eclipse is over $10 cheaper ($40 vs $52), and managed to support 8 more channels on average. To add insult to injury, the Winegard FL5500A FlatWave Antenna is amplified using a USB power adapter, which adds a bit of clutter and complication to the overall setup.
@@ -145,12 +103,6 @@ Lifewire / Jonno Hill
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  ECLIPSE
@@ -163,14 +115,11 @@ Lifewire / Jonno Hill
 * Range  35 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +128,23 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-unmatched-budget-friendly-camera-challenges-for-2024/"><u>[New] Unmatched Budget-Friendly Camera Challenges for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-best-app-selection-perfecting-your-windows-display-captures/"><u>[Updated] 2024 Approved Best App Selection Perfecting Your Windows Display Captures</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-creating-engaging-facebook-covers-best-practices-unveiled-for-2024/"><u>[Updated] Creating Engaging Facebook Covers Best Practices Unveiled for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1byones-digital-hdtv-antenna-review-top-rated-amplifier-for-indoors-on-a-budget/"><u>1ByOne's Digital HDTV Antenna Review: Top Rated Amplifier for Indoors on a Budget</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-perfect-your-phones-chat-signal-how-to-download-and-personalize-whatsapp-ringtone/"><u>2024 Approved Perfect Your Phone's Chat Signal How to Download & Personalize WhatsApp Ringtone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-deep-dive-into-the-narrative-craftsmanship-of-torment-tides-of-numenera-the-ultimate-sci-fi-crpg-review/"><u>A Deep Dive Into the Narrative Craftsmanship of 'Torment: Tides of Numenera' - The Ultimate Sci-Fi CRPG Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-retrospective-on-modern-smartwatches-revisiting-the-impeccable-combination-of-form-and-tech-in-the-venerated-lg-watch-style-with-wear-os-nv20/"><u>A Retrospective on Modern Smartwatches: Revisiting the Impeccable Combination of Form and Tech in The Venerated LG Watch Style with Wear OS Nv20</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-step-by-step-breakdown-of-building-and-coding-a-robot-using-the-makeblock-mbot-learning-pack/"><u>A Step-by-Step Breakdown of Building & Coding a Robot Using the Makeblock mBot Learning Pack</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-lenovo-chromebook-duet-evaluation-a-slick-and-economical-convertible-laptop/"><u>Affordable Lenovo Chromebook Duet Evaluation: A Slick and Economical Convertible Laptop</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-about-asus-zephyrus-g14-a-detailed-review-on-how-it-redefines-no-compromise-gaming/"><u>All About Asus Zephyrus G14 - A Detailed Review on How It Redefines No-Compromise Gaming</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-samsung-galaxy-s23-ultra-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Samsung Galaxy S23 Ultra via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inadequate-performance-by-tp-links-av1300-wireless-powerline-extender-a-comprehensive-review/"><u>Inadequate Performance by TP-Link's AV1300 Wireless Powerline Extender - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722650792668-mastering-the-oculus-quist-2-premium-vr-adventures-for-a-fantastic-deal/"><u>Mastering the Oculus Quist 2: Premium VR Adventures for a Fantastic Deal</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/minecraft-shaping-mastery-crafting-circles-and-spheres-for-2024/"><u>Minecraft Shaping Mastery Crafting Circles & Spheres for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/0-mic-selections-for-aspiring-streaming-artists-for-2024/"><u>Sub-$50 Mic Selections for Aspiring Streaming Artists for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>Updated In 2024, 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
+</ul></div>
 
